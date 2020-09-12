@@ -1,9 +1,9 @@
 ## Welcome, visitor
 ### to Nahuel's profile
-I got lost around Europe and ended up in Sweden somehow.
+I got lost around Europe and ended up in Sweden somehow
 
 ⚡ Full-stack software engineer  
-🔭 Currently working as a project manager / team coach   
+🔭 Officially working as a project manager / team coach   
 📫 Bachelor's degree in computer science  
 💬 Thirst for knowledge  
 
