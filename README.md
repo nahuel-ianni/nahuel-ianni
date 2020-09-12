@@ -1,12 +1,11 @@
 ## Welcome, visitor
 ### to Nahuel's profile
-I'm an argentinian who got lost around Europe and ended up in Sweden somehow.
+I got lost around Europe and ended up in Sweden somehow.
 
-🤔 Full-stack software engineer  
+⚡ Full-stack software engineer  
 🔭 Currently working as a project manager / team coach   
 📫 Bachelor's degree in computer science  
-😄 Under constant improvements  
-⚡ Guitar player
+💬 Thirst for knowledge  
 
 
 ### Learn more about me
