@@ -2,10 +2,10 @@
 ### to Nahuel's profile
 I got lost around Europe a while ago and ended up in Sweden somehow
 
-⚡ Full-stack software engineer  
-🔭 Working as a project manager / team coach   
-📓 Bachelor's degree in computer science  
-💬 Curious mind, thirst for knowledge  
+💻 Full-stack software engineer  
+📈 Working as a project manager / team coach   
+🎓 Bachelor's degree in computer science  
+📚 Curious mind, thirst for knowledge  
 
 
 ### Learn more about me
