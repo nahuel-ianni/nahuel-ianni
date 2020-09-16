@@ -3,7 +3,7 @@
 I got lost around Europe a while ago and ended up in Sweden somehow
 
 💻 Full-stack software engineer  
-📈 Working as a project manager / team coach   
+💼 Working as a project manager / team coach   
 🎓 Bachelor's degree in computer science  
 📕 Curious mind, thirst for knowledge  
 
@@ -19,20 +19,3 @@ I got lost around Europe a while ago and ended up in Sweden somehow
 <a href="http://nahuel-ianni.github.io">
   <img src="https://cdn.jsdelivr.net/npm/simple-icons@3.7.0/icons/workplace.svg" alt="Portfolio" title="Portfolio" width="22px" align="left" />
 </a>
-
-
-<!--
-**nahuel-ianni/nahuel-ianni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- ### Hi there 👋
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
