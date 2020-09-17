@@ -8,7 +8,7 @@ I got lost around Europe a while ago and ended up in Sweden somehow
 📕 Curious mind, thirst for knowledge  
 
 
-### Learn more about me
+### Get in touch with me
 
 <a href="https://www.linkedin.com/in/nahuelianni">
   <img src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" alt="LinkedIn profile" title="LinkedIn profile" width="22px" align="left" />
