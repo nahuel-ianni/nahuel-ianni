@@ -3,7 +3,7 @@
 I got lost in Europe a while ago and ended up in Sweden somehow
 
 💻 Full-stack software engineer  
-💼 Working as a project manager / team coach   
+💼 Working as an Engineering Manager   
 🎓 Bachelor's degree in computer science  
 📕 Curious mind, thirst for knowledge  
 
