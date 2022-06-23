@@ -8,6 +8,6 @@
 I'm an __engineering manager__ from Sweden &nbsp;
 
 💻 &nbsp; Working at [Voi Technology](https://www.voiscooters.com/)<br />
-🍎 &nbsp; Working on side gigs as a fitness coach<br />
+🍎 &nbsp; Working on the side as a fitness coach<br />
 🌱 &nbsp; Currently diving deeper into cloud architecture & services<br />
-💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) objectives
+💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) goals
