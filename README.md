@@ -11,3 +11,5 @@ I'm an __engineering manager__ from Sweden &nbsp;
 🍎 &nbsp; Working on the side as a fitness coach<br />
 🌱 &nbsp; Currently diving deeper into cloud architecture & services<br />
 💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) goals
+
+<img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=nahuel-ianni&layout=compact" alt="Nahuel's GitHub top languages" />
