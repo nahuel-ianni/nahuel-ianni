@@ -12,8 +12,6 @@ I'm an __engineering manager__ from Sweden &nbsp;
 🌱 &nbsp; Currently diving deeper into cloud architecture & services<br />
 💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) goals
 
+&nbsp;&nbsp;
 <h2 align="center">GitHub stats</h2>
-<div style="display: flex;">
-  <img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=nahuel-ianni&theme=tokyonight&layout=compact" alt="Nahuel's GitHub top languages"/>
-  <img height="180em" src="https://github-readme-stats.vercel.app/api?username=nahuel-ianni&show_icons=true&theme=tokyonight&layout=compact" alt="Nahuel's GitHub stats"/>
-</div>
+<img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=nahuel-ianni&theme=tokyonight&layout=compact" alt="Nahuel's GitHub top languages"/>
