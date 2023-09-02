@@ -7,9 +7,9 @@
 
 I'm an __engineering manager__ from Sweden &nbsp;
 
-💻 &nbsp; Working at [Voi Technology](https://www.voiscooters.com/)<br />
+💻 &nbsp; Working at [MSC - Mediterranean Shipping Company](https://www.msc.com)<br />
 🍎 &nbsp; Working on the side as a fitness coach<br />
-🌱 &nbsp; Currently diving deeper into cloud architecture & services<br />
+🌱 &nbsp; Currently focusing on entrepeneurship for a product in the fitness industry<br />
 💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) goals
 
 &nbsp;&nbsp;
