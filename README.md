@@ -2,13 +2,13 @@
 
 <p align="center">
   <a href="http://nahuel-ianni.github.io">Website</a> • 
-  <a href="https://www.linkedin.com/in/nahuelianni">LinkedIn</a>
+  <a href="https://www.linkedin.com/in/nianni">LinkedIn</a>
 </p>
 
-I'm an __engineering manager__ from Sweden &nbsp;
+I'm a __division manager__ in Switzerland &nbsp;
 
 💻 &nbsp; Working at [MSC - Mediterranean Shipping Company](https://www.msc.com)<br />
-🍎 &nbsp; Working on the side as a fitness coach<br />
+🍎 &nbsp; Side gigging as a fitness coach<br />
 🌱 &nbsp; Currently focusing on entrepeneurship for a product in the fitness industry<br />
 💜 &nbsp; I love enabling people and companies to achieve their professional (and personal) goals
 
