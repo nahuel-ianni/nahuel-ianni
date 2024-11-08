@@ -19,7 +19,7 @@ My journey has spanned various roles, from software engineering to executive man
 
 ---
 
-<h2 align="center">GitHub Stats</h2>
+<h2 align="center">GitHub stats</h2>
 <p align="center">
   <img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=nahuel-ianni&theme=tokyonight&layout=compact" alt="Nahuel's GitHub top languages"/>
 </p>
