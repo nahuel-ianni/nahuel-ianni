@@ -7,6 +7,7 @@
 ---
 
 ### Daily Stoic Wisdom
-> _Loading..._  
+> _"He who follows reason in all things is both tranquil and active at the same time, and also cheerful and collected."_
+> — **Marcus Aurelius**
 
-<sub>Last update: _Fetching time..._</sub>
+*Last update: 00:23*
