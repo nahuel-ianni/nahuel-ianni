@@ -22,7 +22,9 @@ jobs:
           echo "> _\"$QUOTE\"_  \n> — **$AUTHOR**" > quote.md
 
       - name: Update Timestamp
-        run: echo "*Last update: _$(date -u '+%Y-%m-%d %H:%M UTC')_*" > timestamp.md
+        run: |
+          LOCAL_TIME=$(TZ="Europe/Zurich" date +'%H:%M')  # Localize to Zurich Time
+          echo "*Last update: $LOCAL_TIME*" > timestamp.md
 
       - name: Update README
         run: |
@@ -37,5 +39,5 @@ jobs:
           git config --global user.name "github-actions"
           git config --global user.email "github-actions@github.com"
           git add README.md
-          git commit -m "Updated Stoic Quote & Timestamp ⏳" || exit 0
+          git commit -m "Updated Stoic Quote & Timestamp" || exit 0
           git push
