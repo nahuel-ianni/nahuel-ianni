@@ -1,12 +1,4 @@
-# Hi, I'm Nahuel :wave:
+> _"Whatever happens at all happens as it should; you will find this true, if you watch narrowly."_  
+> — **Marcus Aurelius**
 
-📍 Based in Switzerland  
-💪 Love solving hard problems, automation, and efficiency  
-⏳ Focused on distributed systems, scalability, and team velocity  
-
----
-
-### Daily Stoic Wisdom
-> _Loading..._  
-
-*Last update: _Fetching time..._*
+*Last update: 00:19*
