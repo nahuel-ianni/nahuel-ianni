@@ -6,7 +6,7 @@
 
 ---
 
-### Daily Stoic Wisdom
+### Stoic Wisdom
 > _"Spend not the remnant of thy days in thoughts and fancies concerning other men, when it is not in relation to some common good, when by it thou art hindered from some other better work."_
 > — **Marcus Aurelius**
 
