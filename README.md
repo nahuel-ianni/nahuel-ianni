@@ -7,8 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"It is a great man that can treat his earthenware as if it was silver, and a man who treats his silver as if it was earthenware is no less great."_
+> _"Never wilt your soul, never be just good, simple or unpolished. Manifest more then the body that surrounds yourself."_  
+> — **Marcus Aurelius**
 
-> — **Seneca**
-
-*Last update: 00:35*
+<sub>*Last update: 00:37*</sub>
