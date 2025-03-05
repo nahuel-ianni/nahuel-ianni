@@ -1,4 +1,12 @@
-> _"Whatever happens at all happens as it should; you will find this true, if you watch narrowly."_  
-> — **Marcus Aurelius**
+# Hi, I'm Nahuel :wave:
 
-*Last update: 00:19*
+📍 Based in Switzerland  
+💪 Love solving hard problems, automation, and efficiency  
+⏳ Focused on distributed systems, scalability, and team velocity  
+
+---
+
+### Daily Stoic Wisdom
+> _Loading..._  
+
+<sub>Last update: _Fetching time..._</sub>
