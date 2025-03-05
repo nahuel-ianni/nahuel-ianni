@@ -2,9 +2,8 @@ name: Update Stoic Quote
 
 on:
   schedule:
-    - cron: "0 0 * * *"   # Run at 00:00 UTC (Midnight)
-    - cron: "0 8 * * *"   # Run at 08:00 UTC (Morning)
-    - cron: "0 16 * * *"  # Run at 16:00 UTC (Afternoon)
+    - cron: "0 9 * * *"   # Run at 09:00 UTC
+    - cron: "0 18 * * *"  # Run at 18:00 UTC
   workflow_dispatch:      # Allow manual execution
 
 jobs:
@@ -19,7 +18,7 @@ jobs:
           QUOTE_JSON=$(curl -s https://stoic-quotes.com/api/quote)
           QUOTE=$(echo "$QUOTE_JSON" | jq -r '.text')
           AUTHOR=$(echo "$QUOTE_JSON" | jq -r '.author')
-          printf "> _\"%s\"_\n> — **%s**\n" "$QUOTE" "$AUTHOR" > quote.md
+          printf "> _\"%s\"_\n> — **%s**\n\n" "$QUOTE" "$AUTHOR" > quote.md
 
       - name: Update Timestamp
         run: |
@@ -30,7 +29,6 @@ jobs:
         run: |
           sed -n '1,/### Daily Stoic Wisdom/p' README.md > temp.md
           cat quote.md >> temp.md
-          echo "" >> temp.md
           cat timestamp.md >> temp.md
           mv temp.md README.md
 
