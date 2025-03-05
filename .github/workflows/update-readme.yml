@@ -22,14 +22,15 @@ jobs:
           echo "> _\"$QUOTE\"_  \n> — **$AUTHOR**" > quote.md
 
       - name: Update Timestamp
-        run: echo "**🕰 Last update:** _$(date -u '+%Y-%m-%d %H:%M UTC')_" > timestamp.md
+        run: echo "*Last update: _$(date -u '+%Y-%m-%d %H:%M UTC')_*" > timestamp.md
 
       - name: Update README
         run: |
-          sed -i '/### 🏛 **Daily Stoic Wisdom**/q' README.md
-          cat quote.md >> README.md
-          echo "" >> README.md
-          cat timestamp.md >> README.md
+          sed -n '/### Daily Stoic Wisdom/p;q' README.md > temp.md
+          cat quote.md >> temp.md
+          echo "" >> temp.md
+          cat timestamp.md >> temp.md
+          mv temp.md README.md
 
       - name: Commit and Push Changes
         run: |

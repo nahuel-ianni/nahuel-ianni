@@ -6,7 +6,7 @@
 
 ---
 
-### 🏛 **Daily Stoic Wisdom**
+### Daily Stoic Wisdom
 > _"Loading..."_  
 
-**🕰 Last update:** _Fetching time..._
+*Last update: _Fetching time..._*
