@@ -7,7 +7,7 @@
 ---
 
 ### Daily Stoic Wisdom
-> _"He who follows reason in all things is both tranquil and active at the same time, and also cheerful and collected."_
+> _"Spend not the remnant of thy days in thoughts and fancies concerning other men, when it is not in relation to some common good, when by it thou art hindered from some other better work."_
 > — **Marcus Aurelius**
 
-*Last update: 00:23*
+*Last update: 00:29*
