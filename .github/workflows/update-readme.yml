@@ -18,7 +18,7 @@ jobs:
           QUOTE_JSON=$(curl -s https://stoic-quotes.com/api/quote)
           QUOTE=$(echo "$QUOTE_JSON" | jq -r '.text')
           AUTHOR=$(echo "$QUOTE_JSON" | jq -r '.author')
-          printf "> _\"%s\"_  > — **%s**" "$QUOTE" "$AUTHOR" > quote.md
+          printf "> _\"%s\"_\n\n> — **%s**\n\n" "$QUOTE" "$AUTHOR" > quote.md
 
       - name: Update Timestamp
         run: |
