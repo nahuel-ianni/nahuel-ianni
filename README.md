@@ -1,17 +1,16 @@
-<h2 align="center">Hi, I'm Nahuel 👋</h2>
+<div align="center">
+  
+# Hi, I'm Nahuel 👋
+[LinkedIn](https://www.linkedin.com/in/nianni)
+  
+</div>
 
-<p align="center">
-  <a href="https://www.linkedin.com/in/nianni">LinkedIn</a>
-</p>
-
-<p>
-I specialize in <strong>engineering leadership and technical innovation</strong>.<br />
-My journey has spanned various roles, from software engineering to executive management, where I’ve led global teams, driven strategic initiatives, and built high-performance tech solutions.
-</p>
+I’m a Senior Engineering Manager thriving at the intersection of big tech and bigger challenges.  
+I lead teams that ship at scale—think millions of users, zero downtime, and systems that don’t blink.  
+My career’s been about driving tech that powers the world, from deep code to C-suite strategy.
 
 ---
 
-🌍 **Currently based in Switzerland**<br />
-💼 **Pursuing high-impact roles in tech**<br />
-🎯 **Focusing on entrepreneurship and consulting**<br />
-✨ **Passionate about empowering teams to excel and grow**
+📍 Based in Switzerland  
+💪 Love solving hard problems, automation and efficiency  
+⏳ Focused on distributed systems, scalability, and team velocity  
