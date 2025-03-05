@@ -7,7 +7,4 @@
 ---
 
 ### Stoic Wisdom
-> _"Spend not the remnant of thy days in thoughts and fancies concerning other men, when it is not in relation to some common good, when by it thou art hindered from some other better work."_
-> — **Marcus Aurelius**
-
-*Last update: 00:29*
+> _"Do you ask what is the foundation of a sound mind? It is, not to find joy in useless things. ."_  > — **Seneca***Last update: 00:33*
