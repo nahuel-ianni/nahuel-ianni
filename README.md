@@ -9,4 +9,4 @@
 ### 🏛 **Daily Stoic Wisdom**
 > _"Loading..."_  
 
-(Updated every day!)
+**🕰 Last update:** _Fetching time..._
