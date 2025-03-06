@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"Manage all your actions, words, and thoughts accordingly, since you may at any moment quit life."_  
-> — **Marcus Aurelius**
+> _"Finally, it is generally agreed that no activity can be successfully pursued by an individual who is preoccupied."_  
+> — **Seneca**
 
-<sub>*Last update: 10:25*</sub>
+<sub>*Last update: 19:11*</sub>
