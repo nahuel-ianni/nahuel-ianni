@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"Never wilt your soul, never be just good, simple or unpolished. Manifest more then the body that surrounds yourself."_  
+> _"Manage all your actions, words, and thoughts accordingly, since you may at any moment quit life."_  
 > — **Marcus Aurelius**
 
-<sub>*Last update: 00:37*</sub>
+<sub>*Last update: 10:25*</sub>
