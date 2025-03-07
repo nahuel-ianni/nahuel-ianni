@@ -1,4 +1,4 @@
-# Hi, I'm Nahuel :wave:
+# Hi, I'm Nahuel :tiger:
 
 📍 Based in Switzerland  
 💪 Love solving hard problems, automation, and efficiency  
