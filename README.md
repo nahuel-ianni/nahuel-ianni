@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"Reading of many books is distraction."_  
+> _"That which takes effect by chance is not an art."_  
 > — **Seneca**
 
-<sub>*Last update: 10:24*</sub>
+<sub>*Last update: 19:11*</sub>
