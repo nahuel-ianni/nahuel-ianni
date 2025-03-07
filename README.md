@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"Finally, it is generally agreed that no activity can be successfully pursued by an individual who is preoccupied."_  
+> _"Reading of many books is distraction."_  
 > — **Seneca**
 
-<sub>*Last update: 19:11*</sub>
+<sub>*Last update: 10:24*</sub>
