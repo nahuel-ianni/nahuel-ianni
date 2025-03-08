@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"So the life of a philosopher extends widely: he is not confined by the same boundary as are others. He alone is free from the laws that limit the human race, and all ages serve him as though he were a god."_  
+> _"When a soul rises superior to other souls, when it is under control, when it passes through every experience as if it were of small account, when it smiles at our fears and at our prayers, it is stirred by a force from heaven."_  
 > — **Seneca**
 
-<sub>*Last update: 10:18*</sub>
+<sub>*Last update: 19:07*</sub>
