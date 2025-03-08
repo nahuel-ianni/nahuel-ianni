@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"That which takes effect by chance is not an art."_  
+> _"So the life of a philosopher extends widely: he is not confined by the same boundary as are others. He alone is free from the laws that limit the human race, and all ages serve him as though he were a god."_  
 > — **Seneca**
 
-<sub>*Last update: 19:11*</sub>
+<sub>*Last update: 10:18*</sub>
