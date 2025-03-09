@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"When a soul rises superior to other souls, when it is under control, when it passes through every experience as if it were of small account, when it smiles at our fears and at our prayers, it is stirred by a force from heaven."_  
-> — **Seneca**
+> _"A better wrestler. But not a better citizen, a better person, a better resource in tight places, a better forgiver of faults."_  
+> — **Marcus Aurelius**
 
-<sub>*Last update: 19:07*</sub>
+<sub>*Last update: 10:18*</sub>
