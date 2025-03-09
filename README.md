@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"A better wrestler. But not a better citizen, a better person, a better resource in tight places, a better forgiver of faults."_  
-> — **Marcus Aurelius**
+> _"In every good person, there lives a god. Which god? We cannot be sure - but it is a god."_  
+> — **Seneca**
 
-<sub>*Last update: 10:18*</sub>
+<sub>*Last update: 19:08*</sub>
