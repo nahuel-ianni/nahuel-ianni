@@ -7,7 +7,7 @@
 ---
 
 ### Stoic Wisdom
-> _"In every good person, there lives a god. Which god? We cannot be sure - but it is a god."_  
-> — **Seneca**
+> _"The essence of philosophy is that a man should so live that his happiness shall depend as little as possible on external things."_  
+> — **Epictetus**
 
-<sub>*Last update: 19:08*</sub>
+<sub>*Last update: 10:21*</sub>
