@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"Anywhere you can lead your life, you can lead a good one."_  
+> _"Can we avoid people? How is that possible? And if we associate with them, can we change them? Who gives us that power?"_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-03-10 13:29:16 UTC*</sub>
+<sub>*Last update: 2025-03-10 18:10:17 UTC*</sub>
