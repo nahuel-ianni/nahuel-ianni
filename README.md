@@ -4,9 +4,7 @@
 💪 Love solving hard problems, automation, and efficiency  
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
----
-
-### Stoic Wisdom
+## Daily Wisdom
 > _"The essence of philosophy is that a man should so live that his happiness shall depend as little as possible on external things."_  
 > — **Epictetus**
 
