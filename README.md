@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"Can we avoid people? How is that possible? And if we associate with them, can we change them? Who gives us that power?"_  
+> _"For manliness gains much strength by being challenged."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-10 18:10:17 UTC*</sub>
+<sub>*Last update: 2025-03-11 09:25:34 UTC*</sub>
