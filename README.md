@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"If they’ve made a mistake, correct them gently and show them where they went wrong. If you can’t do that, then the blame lies with you. Or no one."_  
+> _"Never call yourself a philosopher, nor talk a great deal among the unlearned about theorems, but act conformably to them. Thus, at an entertainment, don’t talk how persons ought to eat, but eat as you ought."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-03-12 09:25:16 UTC*</sub>
+<sub>*Last update: 2025-03-12 18:11:55 UTC*</sub>
