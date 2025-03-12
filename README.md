@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"In the ashes all men are levelled. We're born unequal, we die equal."_  
+> _"If they’ve made a mistake, correct them gently and show them where they went wrong. If you can’t do that, then the blame lies with you. Or no one."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-11 18:11:46 UTC*</sub>
+<sub>*Last update: 2025-03-12 09:25:16 UTC*</sub>
