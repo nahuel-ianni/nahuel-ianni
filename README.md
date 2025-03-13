@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"Never call yourself a philosopher, nor talk a great deal among the unlearned about theorems, but act conformably to them. Thus, at an entertainment, don’t talk how persons ought to eat, but eat as you ought."_  
+> _"Soon you'll be ashes or bones. A mere name at most - and even that is just a sound, an echo. The things we want in life are empty, stale, trivial."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-12 18:11:55 UTC*</sub>
+<sub>*Last update: 2025-03-13 09:25:13 UTC*</sub>
