@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"The earth, saith the poet, doth often long after the rain. So is the glorious sky often as desirous to fall upon the earth, which argues a mutual kind of love between them."_  
+> _"A multitude of books only gets in one's way. So if you are unable to read all the books in your possession, you have enough when you have all the books you are able to read."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-14 09:24:38 UTC*</sub>
+<sub>*Last update: 2025-03-14 18:11:07 UTC*</sub>
