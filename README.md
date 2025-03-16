@@ -7,9 +7,8 @@
 ---
 
 ### Daily Wisdom
-
-> _"If you find something very difficult to achieve yourself, don’t imagine it impossible—for anything possible and proper for another person can be achieved as easily by you."_  
+> _"Since it is possible that thou mayest depart from life this very moment, regulate every act and thought accordingly."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-16 09:21:38 UTC*</sub>
+<sub>*Last update: 2025-03-16 17:12:30 UTC*</sub>
