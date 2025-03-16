@@ -23,11 +23,11 @@ jobs:
       - name: Update Timestamp
         run: |
           UTC_TIME=$(date -u +'%Y-%m-%d %H:%M:%S UTC')  # Get full UTC date and time
-          echo "<sub>*Last update: $UTC_TIME*</sub>\n" > timestamp.md
+          printf "<sub>*Last update: %s*</sub>\n\n" "$UTC_TIME" > timestamp.md
 
-      - name: Add Cool Footer
+      - name: Add Footer
         run: |
-          echo "\n---\n\n💾 *Automating life, one script at a time* • [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+          printf "\n---\n\n\＞ *Scripting simplicity*\n\n＞ Find me: [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
 
       - name: Update README
         run: |
