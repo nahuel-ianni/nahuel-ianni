@@ -7,8 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Very little is needed for everything to be upset and ruined, only a slight lapse in reason."_  
+> _"Sometimes, even to live is an act of courage."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-16 18:10:50 UTC*</sub>
+<sub>*Last update: 2025-03-16 18:22:40 UTC*</sub>
+
