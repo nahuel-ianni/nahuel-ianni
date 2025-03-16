@@ -13,7 +13,7 @@ jobs:
       - name: Checkout Repository
         uses: actions/checkout@v4
 
-      - name: Fetch Stoic Quote
+      - name: Fetch Quote
         run: |
           QUOTE_JSON=$(curl -s https://stoic-quotes.com/api/quote)
           QUOTE=$(echo "$QUOTE_JSON" | jq -r '.text')
@@ -27,7 +27,7 @@ jobs:
 
       - name: Add Footer
         run: |
-          printf "\n---\n\n＞ Scripting simplicity\n＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+          printf "\n---\n\n＞ Scripting simplicity\n\n＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
 
       - name: Update README
         run: |
