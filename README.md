@@ -12,9 +12,3 @@
 > — **Epictetus**
 
 <sub>*Last update: 2025-03-16 18:10:50 UTC*</sub>
-
-
----
-
-＞ Scripting simplicity  
-＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)
