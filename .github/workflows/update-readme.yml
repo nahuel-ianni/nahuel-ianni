@@ -25,9 +25,13 @@ jobs:
           UTC_TIME=$(date -u +'%Y-%m-%d %H:%M:%S UTC')  # Get full UTC date and time
           echo "<sub>*Last update: $UTC_TIME*</sub>" > timestamp.md
 
+      - name: Add LinkedIn Footer
+        run: |
+          echo "[Connect on LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+
       - name: Update README
         run: |
-          sed -n '1,/## Daily Wisdom/p' README.md > temp.md
+          sed -n '1,/### Daily Wisdom/p' README.md > temp.md
           cat quote.md >> temp.md
           cat timestamp.md >> temp.md
           mv temp.md README.md

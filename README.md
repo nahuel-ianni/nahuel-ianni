@@ -1,10 +1,13 @@
 # Hi, I'm Nahuel :tiger:
 
-📍 Switzerland’s latest import (Argentina-Spain-Sweden detour)  
-⛩️ Stoic minimalist overcomplicating “less is more”  
-☕ Seasoned code whisperer: coffee in, automation out
+📍 **Switzerland**’s latest import (Argentina-Spain-Sweden detour)  
+⛩️ **Stoic minimalist** overcomplicating “less is more”  
+⚙️ Seasoned code whisperer **automating life’s chaos**
 
-## Daily Wisdom
+---
+
+### Daily Wisdom
+
 > _"If you find something very difficult to achieve yourself, don’t imagine it impossible—for anything possible and proper for another person can be achieved as easily by you."_  
 >
 > — **Marcus Aurelius**
