@@ -1,4 +1,4 @@
-name: Update Stoic Quote
+name: Update README
 
 on:
   schedule:
@@ -22,12 +22,12 @@ jobs:
 
       - name: Update Timestamp
         run: |
-          UTC_TIME=$(date -u +'%Y-%m-%d %H:%M:%S UTC')  # Get full UTC date and time
+          UTC_TIME=$(date -u +'%Y-%m-%d %H:%M:%S UTC')
           printf "<sub>*Last update: %s*</sub>\n\n" "$UTC_TIME" > timestamp.md
 
       - name: Add Footer
         run: |
-          printf "\n---\n\n＞ Scripting simplicity\n\n＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+          printf "\n---\n\n＞ Scripting simplicity  \n＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
 
       - name: Update README
         run: |
