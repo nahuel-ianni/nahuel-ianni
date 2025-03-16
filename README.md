@@ -5,8 +5,8 @@
 ⏳ Focused on distributed systems, scalability, and team velocity  
 
 ## Daily Wisdom
-> _"So you must match time’s swiftness with your speed in using it, and you must drink quickly as though from a rapid stream that will not always flow."_  
+> _"If you find something very difficult to achieve yourself, don’t imagine it impossible—for anything possible and proper for another person can be achieved as easily by you."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-15 18:09:58 UTC*</sub>
+<sub>*Last update: 2025-03-16 09:21:38 UTC*</sub>
