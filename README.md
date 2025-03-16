@@ -7,8 +7,14 @@
 ---
 
 ### Daily Wisdom
-> _"Beyond all things is the sea."_  
+> _"Very little is needed for everything to be upset and ruined, only a slight lapse in reason."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-03-16 17:43:37 UTC*</sub>
+<sub>*Last update: 2025-03-16 18:10:50 UTC*</sub>
+
+
+---
+
+＞ Scripting simplicity  
+＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)
