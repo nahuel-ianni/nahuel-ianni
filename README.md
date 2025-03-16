@@ -7,15 +7,14 @@
 ---
 
 ### Daily Wisdom
-> _"What we do now echoes in eternity."_  
+> _"Think your way through difficulties: harsh conditions can be softened, restricted ones can be widened, and heavy ones can weigh less on those who know how to bear them."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-16 17:33:03 UTC*</sub>
+<sub>*Last update: 2025-03-16 17:34:07 UTC*</sub>
 
 
 ---
 
 ＞ Scripting simplicity
-
 ＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)
