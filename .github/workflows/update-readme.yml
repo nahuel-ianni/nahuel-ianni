@@ -27,7 +27,7 @@ jobs:
 
       - name: Add Footer
         run: |
-          printf "\n---\n\n\＞ *Scripting simplicity*\n\n＞ Find me: [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+          printf "\n---\n\n＞ Scripting simplicity\n\n＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
 
       - name: Update README
         run: |
