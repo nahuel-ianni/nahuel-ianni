@@ -7,15 +7,15 @@
 ---
 
 ### Daily Wisdom
-> _"Caretake this moment. Immerse yourself in its particulars. Respond to this person, this challenge, this deed. Quit evasions. Stop giving yourself needless trouble. It is time to really live; to fully inhabit the situation you happen to be in now."_  
+> _"What we do now echoes in eternity."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-16 17:30:55 UTC*</sub>
+<sub>*Last update: 2025-03-16 17:33:03 UTC*</sub>
 
 
 ---
 
-\＞ *Scripting simplicity*
+＞ Scripting simplicity
 
-＞ Find me: [LinkedIn](https://www.linkedin.com/in/nianni)
+＞ Find me on [LinkedIn](https://www.linkedin.com/in/nianni)
