@@ -27,12 +27,13 @@ jobs:
 
       - name: Add LinkedIn Footer
         run: |
-          echo "[Connect on LinkedIn](https://www.linkedin.com/in/nianni)" > footer.md
+          echo "[Connect on LinkedIn](https://www.linkedin.com/in/nianni)\n\n" > footer.md
 
       - name: Update README
         run: |
           sed -n '1,/### Daily Wisdom/p' README.md > temp.md
           cat quote.md >> temp.md
+          cat footer.md >> temp.md
           cat timestamp.md >> temp.md
           mv temp.md README.md
 
