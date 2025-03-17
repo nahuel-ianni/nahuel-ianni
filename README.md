@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Sometimes, even to live is an act of courage."_  
+> _"Never say of anything that I've lost it, only that I've given it back."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-03-16 18:22:40 UTC*</sub>
+<sub>*Last update: 2025-03-17 09:26:47 UTC*</sub>
 
