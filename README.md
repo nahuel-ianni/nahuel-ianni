@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Never say of anything that I've lost it, only that I've given it back."_  
+> _"It is wrong not to stretch out your hand to the fallen: that is a common law of the human race."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-17 09:26:47 UTC*</sub>
+<sub>*Last update: 2025-03-17 18:11:55 UTC*</sub>
 
