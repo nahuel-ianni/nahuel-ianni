@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is wrong not to stretch out your hand to the fallen: that is a common law of the human race."_  
+> _"Small-minded people blame others. Average people blame themselves. The wise see all blame as foolishness."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-03-17 18:11:55 UTC*</sub>
+<sub>*Last update: 2025-03-18 09:26:19 UTC*</sub>
 
