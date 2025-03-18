@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Small-minded people blame others. Average people blame themselves. The wise see all blame as foolishness."_  
+> _"Not to be offended with other men's liberty of speech."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-18 09:26:19 UTC*</sub>
+<sub>*Last update: 2025-03-18 18:12:10 UTC*</sub>
 
