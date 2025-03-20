@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If any man can convince and show me that I do not think or act right, I will gladly change; for I seek truth, by which no man was ever injured. But he is injured who abides in his error and ignorance."_  
+> _"We are in the habit of saying that it was not in our power to choose the parents who were allotted to us, that they were given to us by chance. But we can choose whose children we would like to be."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-20 09:25:34 UTC*</sub>
+<sub>*Last update: 2025-03-20 18:11:55 UTC*</sub>
 
