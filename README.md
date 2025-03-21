@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are in the habit of saying that it was not in our power to choose the parents who were allotted to us, that they were given to us by chance. But we can choose whose children we would like to be."_  
+> _"The highest good of man is consciously to work with God for the common good, and this is the sense in which the Stoic tried to live in accord with nature."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-20 18:11:55 UTC*</sub>
+<sub>*Last update: 2025-03-21 09:24:57 UTC*</sub>
 
