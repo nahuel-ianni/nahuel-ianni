@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The highest good of man is consciously to work with God for the common good, and this is the sense in which the Stoic tried to live in accord with nature."_  
+> _"Every pleasure is most valued when it is coming to an end?"_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-21 09:24:57 UTC*</sub>
+<sub>*Last update: 2025-03-21 18:11:23 UTC*</sub>
 
