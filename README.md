@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Every pleasure is most valued when it is coming to an end?"_  
+> _"Death smiles at us all; all we can do is smile back."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-21 18:11:23 UTC*</sub>
+<sub>*Last update: 2025-03-22 09:22:43 UTC*</sub>
 
