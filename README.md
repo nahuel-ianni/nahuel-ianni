@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Death smiles at us all; all we can do is smile back."_  
+> _"I shall never be ashamed to go to a bad author for a good quotation."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-22 09:22:43 UTC*</sub>
+<sub>*Last update: 2025-03-22 18:10:22 UTC*</sub>
 
