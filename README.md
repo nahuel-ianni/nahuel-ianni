@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Look at the past—empire succeeding empire—and from that, extrapolate the future: the same thing. No escape from the rhythm of events. Which is why observing life for forty years is as good as a thousand. Would you really see anything new?"_  
+> _"No one keeps himself waiting; and yet the greatest cure for anger is to wait, so that the initial passion it engenders may die down, and the fog that shrouds the mind may subside, or become less thick."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-23 09:22:04 UTC*</sub>
+<sub>*Last update: 2025-03-23 18:10:03 UTC*</sub>
 
