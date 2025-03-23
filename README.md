@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I shall never be ashamed to go to a bad author for a good quotation."_  
+> _"Look at the past—empire succeeding empire—and from that, extrapolate the future: the same thing. No escape from the rhythm of events. Which is why observing life for forty years is as good as a thousand. Would you really see anything new?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-22 18:10:22 UTC*</sub>
+<sub>*Last update: 2025-03-23 09:22:04 UTC*</sub>
 
