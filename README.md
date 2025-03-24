@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The greatest hindrance to living is expectancy, which depends upon the morrow and wastes to-day."_  
+> _"We are all mere nuggets of incense on the one altar. Some burn down now , some later - there is no difference ."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-24 09:26:52 UTC*</sub>
+<sub>*Last update: 2025-03-24 18:11:54 UTC*</sub>
 
