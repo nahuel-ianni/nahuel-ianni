@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No one keeps himself waiting; and yet the greatest cure for anger is to wait, so that the initial passion it engenders may die down, and the fog that shrouds the mind may subside, or become less thick."_  
+> _"The greatest hindrance to living is expectancy, which depends upon the morrow and wastes to-day."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-03-23 18:10:03 UTC*</sub>
+<sub>*Last update: 2025-03-24 09:26:52 UTC*</sub>
 
