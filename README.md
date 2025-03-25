@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Even the least of our activities ought to have some end in view."_  
+> _"If it doesn't harm your character, how can it harm your life?"_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-25 09:26:00 UTC*</sub>
+<sub>*Last update: 2025-03-25 18:11:55 UTC*</sub>
 
