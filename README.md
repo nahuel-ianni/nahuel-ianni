@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Neither must he use himself to cut off actions only, but thoughts and imaginations also, that are unnecessary for so will unnecessary consequent actions the better be prevented and cut off."_  
+> _"Remember how long thou hast already put off these things, and how often a certain day and hour as it were, having been set unto thee by the gods, thou hast neglected it."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-26 09:25:59 UTC*</sub>
+<sub>*Last update: 2025-03-26 18:12:15 UTC*</sub>
 
