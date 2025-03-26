@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If it doesn't harm your character, how can it harm your life?"_  
+> _"Neither must he use himself to cut off actions only, but thoughts and imaginations also, that are unnecessary for so will unnecessary consequent actions the better be prevented and cut off."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-25 18:11:55 UTC*</sub>
+<sub>*Last update: 2025-03-26 09:25:59 UTC*</sub>
 
