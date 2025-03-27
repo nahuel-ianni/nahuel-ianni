@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember how long thou hast already put off these things, and how often a certain day and hour as it were, having been set unto thee by the gods, thou hast neglected it."_  
+> _"The belly will not listen to advice; it makes demands, it importunes. And yet it is not a troublesome creditor; you can send it away at small cost, provided only that you give it what you owe, not merely all you are able to."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-26 18:12:15 UTC*</sub>
+<sub>*Last update: 2025-03-27 09:26:28 UTC*</sub>
 
