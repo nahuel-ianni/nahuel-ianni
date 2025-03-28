@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you really want to escape the things that harass you, what you’re needing is not to be in a different place but to be a different person."_  
+> _"A man cannot lose a thing if he has it not."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-27 18:11:49 UTC*</sub>
+<sub>*Last update: 2025-03-28 09:26:44 UTC*</sub>
 
