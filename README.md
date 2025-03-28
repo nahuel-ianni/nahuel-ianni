@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A man cannot lose a thing if he has it not."_  
+> _"Remember, however, that you are formed by nature to bear everything whose tolerability depends on your own opinion to make it so, by thinking that it is in your interest or duty to do so."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-03-28 09:26:44 UTC*</sub>
+<sub>*Last update: 2025-03-28 18:12:30 UTC*</sub>
 
