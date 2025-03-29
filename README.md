@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember, however, that you are formed by nature to bear everything whose tolerability depends on your own opinion to make it so, by thinking that it is in your interest or duty to do so."_  
+> _"What fortune has made yours is not your own."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-03-28 18:12:30 UTC*</sub>
+<sub>*Last update: 2025-03-29 09:23:19 UTC*</sub>
 
