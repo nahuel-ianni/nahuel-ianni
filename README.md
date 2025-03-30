@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Because thou writest me often, I thank thee. Never do I receive a letter from thee, but immediately we are together."_  
+> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-03-30 09:22:26 UTC*</sub>
+<sub>*Last update: 2025-03-30 18:10:12 UTC*</sub>
 
