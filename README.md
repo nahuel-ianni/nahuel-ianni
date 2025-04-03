@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Another useful point to bear in mind: What qualities has nature given us to counter that defect? As an antidote to unkindness it gave us kindness. And other qualities to balance other flaws."_  
+> _"Is natural to touch more often the part that hurts."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-02 18:12:14 UTC*</sub>
+<sub>*Last update: 2025-04-03 09:26:05 UTC*</sub>
 
