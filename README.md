@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Is natural to touch more often the part that hurts."_  
+> _"Life is a piece of music, and you’re supposed to be dancing."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-03 09:26:05 UTC*</sub>
+<sub>*Last update: 2025-04-03 18:12:06 UTC*</sub>
 
