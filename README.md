@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life is a piece of music, and you’re supposed to be dancing."_  
+> _"A family formed by crime must be broken by more crime."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-03 18:12:06 UTC*</sub>
+<sub>*Last update: 2025-04-04 09:25:47 UTC*</sub>
 
