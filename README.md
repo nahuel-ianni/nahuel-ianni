@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A family formed by crime must be broken by more crime."_  
+> _"I want to die, even though I don't have to."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-04 09:25:47 UTC*</sub>
+<sub>*Last update: 2025-04-04 18:11:43 UTC*</sub>
 
