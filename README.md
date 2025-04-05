@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
+> _"He who boasts of his descent, praises the deeds of another."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-04-05 09:22:11 UTC*</sub>
+<sub>*Last update: 2025-04-05 18:09:58 UTC*</sub>
 
