@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I want to die, even though I don't have to."_  
+> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-04 18:11:43 UTC*</sub>
+<sub>*Last update: 2025-04-05 09:22:11 UTC*</sub>
 
