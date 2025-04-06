@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you wish to be good, first believe that you are bad."_  
+> _"We suffer more often in imagination than in reality."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-06 09:23:13 UTC*</sub>
+<sub>*Last update: 2025-04-06 18:10:16 UTC*</sub>
 
