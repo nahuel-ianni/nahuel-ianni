@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He who boasts of his descent, praises the deeds of another."_  
+> _"If you wish to be good, first believe that you are bad."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-05 18:09:58 UTC*</sub>
+<sub>*Last update: 2025-04-06 09:23:13 UTC*</sub>
 
