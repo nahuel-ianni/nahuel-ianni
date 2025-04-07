@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We suffer more often in imagination than in reality."_  
+> _"Moreover, to endure labour; nor to need many things; when I have anything to do, to do it myself rather than by others; not to meddle with many businesses; and not easily to admit of any slander."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-06 18:10:16 UTC*</sub>
+<sub>*Last update: 2025-04-07 09:27:05 UTC*</sub>
 
