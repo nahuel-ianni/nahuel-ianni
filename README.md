@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Moreover, to endure labour; nor to need many things; when I have anything to do, to do it myself rather than by others; not to meddle with many businesses; and not easily to admit of any slander."_  
+> _"Leisure without study is death; it is a tomb for the living man."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-07 09:27:05 UTC*</sub>
+<sub>*Last update: 2025-04-07 18:13:45 UTC*</sub>
 
