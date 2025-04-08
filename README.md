@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Leisure without study is death; it is a tomb for the living man."_  
+> _"The existence of evil does not harm the world. And an individual act of evil does not harm the victim. Only one person is harmed by it—and he can stop being harmed as soon as he decides to."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-07 18:13:45 UTC*</sub>
+<sub>*Last update: 2025-04-08 09:26:53 UTC*</sub>
 
