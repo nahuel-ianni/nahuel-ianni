@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever happens, happens rightly. Watch closely, and you will find this true. In the succession of events there is not mere sequence alone, but an order that is just right, as from the hand of one who dispense to their due."_  
+> _"Drunkenness is nothing but voluntary madness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-08 18:11:38 UTC*</sub>
+<sub>*Last update: 2025-04-09 09:27:39 UTC*</sub>
 
