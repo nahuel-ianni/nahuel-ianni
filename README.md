@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _""I'll show you that I’m master." —How will you do that? Zeus has set me free. Do you really suppose that he would allow his own son to be turned into a slave? You’re master of my carcass, take that."_  
+> _"If some one tells you that so and so speaks ill of you, do not defend yourself against what he says, but answer, 'He did not know my other faults, or he would not have mentioned these alone.'"_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-09 18:12:26 UTC*</sub>
+<sub>*Last update: 2025-04-10 09:26:06 UTC*</sub>
 
