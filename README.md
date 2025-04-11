@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The only really leisured people are those who devote time to acquiring true knowledge rather than trivia. ."_  
+> _"There is nothing the busy man is less busied with than living:  there is nothing that is harder to learn."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-04-11 09:26:06 UTC*</sub>
+<sub>*Last update: 2025-04-11 18:12:25 UTC*</sub>
 
