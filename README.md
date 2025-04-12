@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is nothing the busy man is less busied with than living:  there is nothing that is harder to learn."_  
+> _"Here are thieves and robbers and tribunals: and they that are called tyrants, who deem that they have after a fashion power over us, because of the miserable body and what appertains to it. Let us show them that they have power over none."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-11 18:12:25 UTC*</sub>
+<sub>*Last update: 2025-04-12 09:24:54 UTC*</sub>
 
