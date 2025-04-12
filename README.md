@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Here are thieves and robbers and tribunals: and they that are called tyrants, who deem that they have after a fashion power over us, because of the miserable body and what appertains to it. Let us show them that they have power over none."_  
+> _"Forget everything else. Keep hold of this alone and remember it: Each of us lives only now, this brief instant. The rest has been lived already, or is impossible to see. The span we live is small—small."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-12 09:24:54 UTC*</sub>
+<sub>*Last update: 2025-04-12 18:10:22 UTC*</sub>
 
