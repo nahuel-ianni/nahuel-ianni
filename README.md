@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a rough road that leads to the heights of greatness."_  
+> _"What is this, fundamentally? What is its nature and substance, its reason for being? What is it doing in the world? How long is it here for?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-13 09:24:52 UTC*</sub>
+<sub>*Last update: 2025-04-13 18:10:53 UTC*</sub>
 
