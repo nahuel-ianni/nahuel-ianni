@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Forget everything else. Keep hold of this alone and remember it: Each of us lives only now, this brief instant. The rest has been lived already, or is impossible to see. The span we live is small—small."_  
+> _"It is a rough road that leads to the heights of greatness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-12 18:10:22 UTC*</sub>
+<sub>*Last update: 2025-04-13 09:24:52 UTC*</sub>
 
