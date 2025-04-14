@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What is this, fundamentally? What is its nature and substance, its reason for being? What is it doing in the world? How long is it here for?"_  
+> _""What progress, you ask, have I made? I have begun to be a friend to myself." That was indeed a great benefit; such a person can never be alone. You may be sure that such a man is a friend to all mankind."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-13 18:10:53 UTC*</sub>
+<sub>*Last update: 2025-04-14 09:27:48 UTC*</sub>
 
