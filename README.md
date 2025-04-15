@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Self reliance, always. And cheerfulness."_  
+> _"Soon you'll be ashes or bones. A mere name at most - and even that is just a sound, an echo. The things we want in life are empty, stale, trivial."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-14 18:12:28 UTC*</sub>
+<sub>*Last update: 2025-04-15 09:27:11 UTC*</sub>
 
