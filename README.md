@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Soon you'll be ashes or bones. A mere name at most - and even that is just a sound, an echo. The things we want in life are empty, stale, trivial."_  
+> _"First say to yourself what you would be; and then do what you have to do."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-15 09:27:11 UTC*</sub>
+<sub>*Last update: 2025-04-15 18:10:37 UTC*</sub>
 
