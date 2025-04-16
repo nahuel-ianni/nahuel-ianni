@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"First say to yourself what you would be; and then do what you have to do."_  
+> _"If you look on wealth as a thing to be valued you’ll always fancy yourself to be short of the things you need to the extent to which you lag behind what others have."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-15 18:10:37 UTC*</sub>
+<sub>*Last update: 2025-04-16 09:26:42 UTC*</sub>
 
