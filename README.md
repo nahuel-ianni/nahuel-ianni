@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you look on wealth as a thing to be valued you’ll always fancy yourself to be short of the things you need to the extent to which you lag behind what others have."_  
+> _"You're not yet Socrates, but you can still live as if you want to be him."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-16 09:26:42 UTC*</sub>
+<sub>*Last update: 2025-04-16 18:12:31 UTC*</sub>
 
