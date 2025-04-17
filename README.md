@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You're not yet Socrates, but you can still live as if you want to be him."_  
+> _"Do you ask what is the foundation of a sound mind? It is, not to find joy in useless things. ."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-16 18:12:31 UTC*</sub>
+<sub>*Last update: 2025-04-17 09:26:59 UTC*</sub>
 
