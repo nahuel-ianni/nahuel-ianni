@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Each day acquire something that will fortify you against poverty, against death, indeed against other misfortunes as well; and after you have run over many thoughts, select one to be thoroughly digested that day."_  
+> _"Regain your senses, call yourself back, and once again wake up. Now that you realize that only dreams were troubling you, view this 'reality' as you view your dreams."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-17 18:12:17 UTC*</sub>
+<sub>*Last update: 2025-04-18 09:26:44 UTC*</sub>
 
