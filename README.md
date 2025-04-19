@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever may happen to you, it was prepared for you from all eternity; and the implication of causes was from eternity spinning the thread of your being, and of that which is incident to it."_  
+> _"Philosophy is good advice; and no one can give advice at the top of his lungs."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-18 18:11:49 UTC*</sub>
+<sub>*Last update: 2025-04-19 09:22:26 UTC*</sub>
 
