@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Timendi causa est nescire -  Ignorance is the cause of fear."_  
+> _"Remember how long you have been putting off these things, and how often you have received an opportunity from the gods, and yet do not use it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-20 09:22:30 UTC*</sub>
+<sub>*Last update: 2025-04-20 18:10:38 UTC*</sub>
 
