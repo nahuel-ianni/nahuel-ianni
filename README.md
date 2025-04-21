@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Fire is the test of gold; adversity, of strong men."_  
+> _"My city and my country, as I am Antoninus, is Rome; as I am a man, it is the world."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-21 09:26:30 UTC*</sub>
+<sub>*Last update: 2025-04-21 18:12:02 UTC*</sub>
 
