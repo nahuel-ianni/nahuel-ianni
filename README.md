@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember how long you have been putting off these things, and how often you have received an opportunity from the gods, and yet do not use it."_  
+> _"Fire is the test of gold; adversity, of strong men."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-20 18:10:38 UTC*</sub>
+<sub>*Last update: 2025-04-21 09:26:30 UTC*</sub>
 
