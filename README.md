@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Words need to be sown like seeds. No matter how tiny a seed may be, when in lands in the right sort of ground it unfolds its strength and from being minute expands and grows to a massive size."_  
+> _"Natural abilities do not respond well to compulsion; when Nature is in opposition, labour is fruitless."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-04-22 09:26:27 UTC*</sub>
+<sub>*Last update: 2025-04-22 18:12:10 UTC*</sub>
 
