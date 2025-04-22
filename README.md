@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"My city and my country, as I am Antoninus, is Rome; as I am a man, it is the world."_  
+> _"Words need to be sown like seeds. No matter how tiny a seed may be, when in lands in the right sort of ground it unfolds its strength and from being minute expands and grows to a massive size."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-21 18:12:02 UTC*</sub>
+<sub>*Last update: 2025-04-22 09:26:27 UTC*</sub>
 
