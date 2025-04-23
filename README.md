@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Natural abilities do not respond well to compulsion; when Nature is in opposition, labour is fruitless."_  
+> _"Conversation has a kind of charm about it, an insuating and insidious something that elicits secrets from us just like love or liquor."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-04-22 18:12:10 UTC*</sub>
+<sub>*Last update: 2025-04-23 09:26:47 UTC*</sub>
 
