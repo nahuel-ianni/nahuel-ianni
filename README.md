@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Conversation has a kind of charm about it, an insuating and insidious something that elicits secrets from us just like love or liquor."_  
+> _"A little flesh, a little breath, and a Reason to rule all – that is myself."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-23 09:26:47 UTC*</sub>
+<sub>*Last update: 2025-04-23 18:12:44 UTC*</sub>
 
