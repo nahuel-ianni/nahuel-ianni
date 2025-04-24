@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A little flesh, a little breath, and a Reason to rule all – that is myself."_  
+> _"Beyond all things is the sea."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-23 18:12:44 UTC*</sub>
+<sub>*Last update: 2025-04-24 09:27:10 UTC*</sub>
 
