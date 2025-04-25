@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So long as you live, keep learning how to live."_  
+> _"You fear everything as mortals but desire to have everything as gods."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-04-24 18:11:44 UTC*</sub>
+<sub>*Last update: 2025-04-25 09:26:24 UTC*</sub>
 
