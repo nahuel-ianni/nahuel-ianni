@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And in the case of superior things like stars, we discover a kind of unity in separation. The higher we rise on the scale of being, the easier it is to discern a connection even among things separated by vast distances."_  
+> _"Istam terra de fossam premat, gravisque terrus impio capiti incubet! (As for her, let her be buried deep in earth, and heavy may the soil lie on her unholy head.)."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-25 18:12:16 UTC*</sub>
+<sub>*Last update: 2025-04-26 09:23:11 UTC*</sub>
 
