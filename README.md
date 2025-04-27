@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Freedom is secured not by the fulfilling of men's desires, but by the removal of desire."_  
+> _"What need is there to weep over parts of life? The whole of it calls for tears."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-26 18:10:29 UTC*</sub>
+<sub>*Last update: 2025-04-27 09:23:22 UTC*</sub>
 
