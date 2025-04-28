@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Wherein Antoninus recordeth, What and of whom, whether Parents, Friends, or Masters; by their good examples, or good advice and counsel, he had learned."_  
+> _"This wretched body, the chain and prison of the soul, is tossed hither and thither; upon it punishment and pillage and disease wreak havoc: but the soul itself is holy and eternal, and it cannot be assailed with violence."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-28 10:52:34 UTC*</sub>
+<sub>*Last update: 2025-04-28 18:12:57 UTC*</sub>
 
