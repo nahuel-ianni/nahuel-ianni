@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no great genius without some touch of madness."_  
+> _"Wherein Antoninus recordeth, What and of whom, whether Parents, Friends, or Masters; by their good examples, or good advice and counsel, he had learned."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-27 18:10:48 UTC*</sub>
+<sub>*Last update: 2025-04-28 10:52:34 UTC*</sub>
 
