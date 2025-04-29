@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This wretched body, the chain and prison of the soul, is tossed hither and thither; upon it punishment and pillage and disease wreak havoc: but the soul itself is holy and eternal, and it cannot be assailed with violence."_  
+> _"Never say about anything, I have lost it, but only I have given it back."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-28 18:12:57 UTC*</sub>
+<sub>*Last update: 2025-04-29 09:27:23 UTC*</sub>
 
