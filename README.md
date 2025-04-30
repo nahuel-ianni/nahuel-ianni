@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For manliness gains much strength by being challenged."_  
+> _"For outward show is a wonderful perverter of the reason."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-04-30 09:26:52 UTC*</sub>
+<sub>*Last update: 2025-04-30 18:12:24 UTC*</sub>
 
