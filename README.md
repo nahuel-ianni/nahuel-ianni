@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Don't concern yourself with other people's business. It's his problem if he receives you badly. And you cannot suffer for another person's fault. So don't worry about the behavior of other."_  
+> _"For manliness gains much strength by being challenged."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-04-29 18:12:40 UTC*</sub>
+<sub>*Last update: 2025-04-30 09:26:52 UTC*</sub>
 
