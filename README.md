@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Imagine for yourself a character, a model personality, whose example you determine to follow, in private as well as in public."_  
+> _"Regain your senses, call yourself back, and once again wake up. Now that you realize that only dreams were troubling you, view this 'reality' as you view your dreams."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-01 09:26:19 UTC*</sub>
+<sub>*Last update: 2025-05-01 18:12:14 UTC*</sub>
 
