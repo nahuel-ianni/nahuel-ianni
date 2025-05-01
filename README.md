@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For outward show is a wonderful perverter of the reason."_  
+> _"Imagine for yourself a character, a model personality, whose example you determine to follow, in private as well as in public."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-04-30 18:12:24 UTC*</sub>
+<sub>*Last update: 2025-05-01 09:26:19 UTC*</sub>
 
