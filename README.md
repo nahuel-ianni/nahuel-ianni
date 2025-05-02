@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no man so blessed that some who stand by his deathbed won't hail the occasion with delight."_  
+> _"It is a great thing to know the season for speech and the season for silence."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-02 09:26:05 UTC*</sub>
+<sub>*Last update: 2025-05-02 18:12:17 UTC*</sub>
 
