@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a great thing to know the season for speech and the season for silence."_  
+> _"Attach yourself to what is spiritually superior, regardless of what other people think or do. Hold to your true aspirations no matter what is going on around you."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-02 18:12:17 UTC*</sub>
+<sub>*Last update: 2025-05-03 09:23:36 UTC*</sub>
 
