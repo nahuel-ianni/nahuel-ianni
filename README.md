@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Attach yourself to what is spiritually superior, regardless of what other people think or do. Hold to your true aspirations no matter what is going on around you."_  
+> _"While we are postponing, life speeds by."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-03 09:23:36 UTC*</sub>
+<sub>*Last update: 2025-05-03 18:10:55 UTC*</sub>
 
