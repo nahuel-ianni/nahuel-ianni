@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"While we are postponing, life speeds by."_  
+> _"Whatever happens to you has been waiting to happen since the beginning of time. The twining strands of fate wove both of them together: your own existence and the things that happen to you."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-03 18:10:55 UTC*</sub>
+<sub>*Last update: 2025-05-04 09:23:42 UTC*</sub>
 
