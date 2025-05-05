@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Here is a rule to remember in future, when anything tempts you to feel bitter: not "This is misfortune," but "To bear this worthily is good fortune.""_  
+> _"Not to be offended with other men's liberty of speech."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-04 18:10:55 UTC*</sub>
+<sub>*Last update: 2025-05-05 09:27:25 UTC*</sub>
 
