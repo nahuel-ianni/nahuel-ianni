@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Not to be offended with other men's liberty of speech."_  
+> _"From this state also will he flee. If I should attempt to enumerate them one by one, I should not find a single one which could tolerate the wise man or which the wise man could tolerate."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-05 09:27:25 UTC*</sub>
+<sub>*Last update: 2025-05-05 18:10:18 UTC*</sub>
 
