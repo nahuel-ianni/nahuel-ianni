@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"From this state also will he flee. If I should attempt to enumerate them one by one, I should not find a single one which could tolerate the wise man or which the wise man could tolerate."_  
+> _"Think for a long time whether or not you should admit a given person to your friendship. But when you have decided to do so, welcome him heart and soul, and speak as unreservedly with him as you would with yourself."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-05 18:10:18 UTC*</sub>
+<sub>*Last update: 2025-05-06 09:27:18 UTC*</sub>
 
