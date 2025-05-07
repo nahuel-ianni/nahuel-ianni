@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
+> _"Men are tight-fisted in keeping control of their fortunes, but when it comes to the matter of wasting time, they are positively extravagant in the one area where there is honour in being miserly."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-06 18:12:40 UTC*</sub>
+<sub>*Last update: 2025-05-07 09:27:47 UTC*</sub>
 
