@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Freedom, you see, is having events go in accordance with our will, never contrary to it."_  
+> _"'It is unbearable to be deprived of your country.' Come now, look at this mass of people whom the buildings of huge Rome can scarcely hold: most of that crowd are deprived of their country."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-08 09:26:52 UTC*</sub>
+<sub>*Last update: 2025-05-08 18:12:31 UTC*</sub>
 
