@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He is ungrateful who denies that he has received a kindness which has been bestowed upon him; he is ungrateful who conceals it; he is ungrateful who makes no return for it; most ungrateful of all is he who forgets it."_  
+> _"Freedom, you see, is having events go in accordance with our will, never contrary to it."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-07 18:13:10 UTC*</sub>
+<sub>*Last update: 2025-05-08 09:26:52 UTC*</sub>
 
