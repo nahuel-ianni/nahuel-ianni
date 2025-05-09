@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"'It is unbearable to be deprived of your country.' Come now, look at this mass of people whom the buildings of huge Rome can scarcely hold: most of that crowd are deprived of their country."_  
+> _"You see, then, that it is necessary for you to become a student, that creature which every one laughs at, if you really desire to make an examination of your judgements. But this, as you are quite aware, is not the work of a single hour or day."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-08 18:12:31 UTC*</sub>
+<sub>*Last update: 2025-05-09 09:26:47 UTC*</sub>
 
