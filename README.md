@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You see, then, that it is necessary for you to become a student, that creature which every one laughs at, if you really desire to make an examination of your judgements. But this, as you are quite aware, is not the work of a single hour or day."_  
+> _"Never praise or blame people on common grounds; look to their judgements exclusively. Because that is the determining factor, which makes everyone's actions either good or bad."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-05-09 09:26:47 UTC*</sub>
+<sub>*Last update: 2025-05-09 18:12:07 UTC*</sub>
 
