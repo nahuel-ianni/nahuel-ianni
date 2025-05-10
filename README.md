@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men are so thoughtless, nay, so mad, that some, through fear of death, force themselves to die."_  
+> _"That way you'll see human life for what it is. Smoke. Nothing. Especially when you recall that once things alter they cease to exist through all the endless years to come. Then why such turmoil?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-10 09:23:05 UTC*</sub>
+<sub>*Last update: 2025-05-10 18:10:38 UTC*</sub>
 
