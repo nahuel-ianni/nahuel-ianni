@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Never praise or blame people on common grounds; look to their judgements exclusively. Because that is the determining factor, which makes everyone's actions either good or bad."_  
+> _"Men are so thoughtless, nay, so mad, that some, through fear of death, force themselves to die."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-09 18:12:07 UTC*</sub>
+<sub>*Last update: 2025-05-10 09:23:05 UTC*</sub>
 
