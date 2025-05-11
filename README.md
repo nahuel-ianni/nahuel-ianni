@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That way you'll see human life for what it is. Smoke. Nothing. Especially when you recall that once things alter they cease to exist through all the endless years to come. Then why such turmoil?"_  
+> _"An ignorant person is inclined to blame others for his own misfortune. To blame oneself is proof of progress. But the wise man never has to blame another or himself."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-10 18:10:38 UTC*</sub>
+<sub>*Last update: 2025-05-11 09:24:02 UTC*</sub>
 
