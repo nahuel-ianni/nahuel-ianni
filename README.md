@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"An ignorant person is inclined to blame others for his own misfortune. To blame oneself is proof of progress. But the wise man never has to blame another or himself."_  
+> _"If you have assumed a character beyond your strength, you have both played a poor figure in that, and neglected one that is within your powers."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-05-11 09:24:02 UTC*</sub>
+<sub>*Last update: 2025-05-11 18:10:50 UTC*</sub>
 
