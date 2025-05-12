@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It should be our care not so much to live a long life as a satisfactory one."_  
+> _"Ask yourself at every moment, 'Is this necessary?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-12 09:28:28 UTC*</sub>
+<sub>*Last update: 2025-05-12 18:12:46 UTC*</sub>
 
