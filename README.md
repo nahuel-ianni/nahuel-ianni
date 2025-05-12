@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you have assumed a character beyond your strength, you have both played a poor figure in that, and neglected one that is within your powers."_  
+> _"It should be our care not so much to live a long life as a satisfactory one."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-11 18:10:50 UTC*</sub>
+<sub>*Last update: 2025-05-12 09:28:28 UTC*</sub>
 
