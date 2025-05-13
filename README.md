@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Greed is satisfied by nothing, but nature finds satisfaction even in scant measure."_  
+> _"This that I am, whatever it be, is mere flesh and a little breath and the ruling Reason."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-13 09:27:58 UTC*</sub>
+<sub>*Last update: 2025-05-13 18:12:51 UTC*</sub>
 
