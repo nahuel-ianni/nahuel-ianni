@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ask yourself at every moment, 'Is this necessary?"_  
+> _"Greed is satisfied by nothing, but nature finds satisfaction even in scant measure."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-12 18:12:46 UTC*</sub>
+<sub>*Last update: 2025-05-13 09:27:58 UTC*</sub>
 
