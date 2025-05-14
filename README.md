@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you have assumed a character above your strength, you have both acted in this matter in an unbecoming way, and you have neglected that which you might have fulfilled."_  
+> _"There is no enjoying the possession of anything valuable unless one has someone to share it with."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-14 09:27:21 UTC*</sub>
+<sub>*Last update: 2025-05-14 18:11:55 UTC*</sub>
 
