@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This that I am, whatever it be, is mere flesh and a little breath and the ruling Reason."_  
+> _"If you have assumed a character above your strength, you have both acted in this matter in an unbecoming way, and you have neglected that which you might have fulfilled."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-13 18:12:51 UTC*</sub>
+<sub>*Last update: 2025-05-14 09:27:21 UTC*</sub>
 
