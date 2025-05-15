@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no enjoying the possession of anything valuable unless one has someone to share it with."_  
+> _"Time is a river, a violent current of events, glimpsed once and already carried past us, and another follows and is gone."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-14 18:11:55 UTC*</sub>
+<sub>*Last update: 2025-05-15 09:27:27 UTC*</sub>
 
