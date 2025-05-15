@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Time is a river, a violent current of events, glimpsed once and already carried past us, and another follows and is gone."_  
+> _"We must indulge the mind and from time to time allow it the leisure which is its food and strength."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-15 09:27:27 UTC*</sub>
+<sub>*Last update: 2025-05-15 18:12:42 UTC*</sub>
 
