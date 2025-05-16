@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We must indulge the mind and from time to time allow it the leisure which is its food and strength."_  
+> _"A city is not adorned by external things, but by the virtue of those who dwell in it."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-15 18:12:42 UTC*</sub>
+<sub>*Last update: 2025-05-16 09:27:03 UTC*</sub>
 
