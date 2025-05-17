@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not try to seem wise to others. If you want to live a wise life, live it on your own terms and in your own eyes."_  
+> _"Life is opinion."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-16 18:12:36 UTC*</sub>
+<sub>*Last update: 2025-05-17 09:24:03 UTC*</sub>
 
