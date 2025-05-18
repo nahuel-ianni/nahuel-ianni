@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Yes, keep on degrading yourself, soul. But soon your chance at dignity will be gone. Everyone gets one life. Yours is almost used up, and instead of treating yourself with respect, you have entrusted your own happiness to the souls of others."_  
+> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-17 18:10:59 UTC*</sub>
+<sub>*Last update: 2025-05-18 09:23:36 UTC*</sub>
 
