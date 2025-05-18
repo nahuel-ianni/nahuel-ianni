@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
+> _"You are retained as counsel for unhappy mankind. You have promised to help those in peril by sea, those in captivity, the sick and the needy, and those whose heads are under the poised axe. Whither are you straying? What are you doing?"_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-18 09:23:36 UTC*</sub>
+<sub>*Last update: 2025-05-18 18:11:07 UTC*</sub>
 
