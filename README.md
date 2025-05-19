@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You are retained as counsel for unhappy mankind. You have promised to help those in peril by sea, those in captivity, the sick and the needy, and those whose heads are under the poised axe. Whither are you straying? What are you doing?"_  
+> _"It is the mind that creates our wealth, and this goes with us into exile, and in the harshest desert places it finds sufficient to nourish the body and revels in the enjoyment of its own goods."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-18 18:11:07 UTC*</sub>
+<sub>*Last update: 2025-05-19 09:28:56 UTC*</sub>
 
