@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Therefore, nothing ought to be unexpected by us. Our minds should be sent forward in advance to meet all problems, and we should consider, not what is wont to happen, but what can happen."_  
+> _"There are more things, Lucilius, likely to frighten us than there are to crush us; we suffer more often in imagination than in reality."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-19 18:12:59 UTC*</sub>
+<sub>*Last update: 2025-05-20 09:28:02 UTC*</sub>
 
