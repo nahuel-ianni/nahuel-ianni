@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There are more things, Lucilius, likely to frighten us than there are to crush us; we suffer more often in imagination than in reality."_  
+> _"Whoever chafes at the conditions dealt by fate is unskilled in the art of life; whoever bears with them nobly and makes wise use of the results is a man who deserves to be considered good."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-20 09:28:02 UTC*</sub>
+<sub>*Last update: 2025-05-20 18:12:57 UTC*</sub>
 
