@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whoever chafes at the conditions dealt by fate is unskilled in the art of life; whoever bears with them nobly and makes wise use of the results is a man who deserves to be considered good."_  
+> _"The sun also shines on the wicked."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-20 18:12:57 UTC*</sub>
+<sub>*Last update: 2025-05-21 09:28:00 UTC*</sub>
 
