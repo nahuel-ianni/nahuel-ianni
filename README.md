@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The sun also shines on the wicked."_  
+> _"Stupidity is expecting figs in winter, or children in old age."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-21 09:28:00 UTC*</sub>
+<sub>*Last update: 2025-05-21 18:13:01 UTC*</sub>
 
