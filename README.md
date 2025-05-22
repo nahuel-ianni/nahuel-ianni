@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Stupidity is expecting figs in winter, or children in old age."_  
+> _"It is not events that disturb people, it is their judgements concerning them."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-05-21 18:13:01 UTC*</sub>
+<sub>*Last update: 2025-05-22 09:27:40 UTC*</sub>
 
