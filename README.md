@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is not events that disturb people, it is their judgements concerning them."_  
+> _"Today I escaped from anxiety. Or no, I discarded it, because it was within me, in my own perceptions—not outside."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-22 09:27:40 UTC*</sub>
+<sub>*Last update: 2025-05-22 18:12:41 UTC*</sub>
 
