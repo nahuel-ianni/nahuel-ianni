@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And to have learned how to accept favors from friends without losing your self-respect or appearing ungrateful."_  
+> _"You live as if you will live forever, no care for your mortality ever enters your head, you pay no mind to how much time has already gone by."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-23 09:27:23 UTC*</sub>
+<sub>*Last update: 2025-05-23 18:11:17 UTC*</sub>
 
