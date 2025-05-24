@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You live as if you will live forever, no care for your mortality ever enters your head, you pay no mind to how much time has already gone by."_  
+> _"Sometimes even to live is an act of courage."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-05-23 18:11:17 UTC*</sub>
+<sub>*Last update: 2025-05-24 09:23:28 UTC*</sub>
 
