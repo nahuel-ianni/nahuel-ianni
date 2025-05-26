@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are mad, not only individually but nationally. We check manslaughter and isolated murders, but what of war and the much-vaunted crime of slaughtering whole peoples?"_  
+> _"Think of yourself as dead. You have lived your life. Now take what’s left and live it properly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-26 09:50:54 UTC*</sub>
+<sub>*Last update: 2025-05-26 18:12:04 UTC*</sub>
 
