@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Think of yourself as dead. You have lived your life. Now take what’s left and live it properly."_  
+> _"So it is: we are not given a short life but we make it short, and we are not Ill-supplied but wasteful of it."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-26 18:12:04 UTC*</sub>
+<sub>*Last update: 2025-05-27 09:27:14 UTC*</sub>
 
