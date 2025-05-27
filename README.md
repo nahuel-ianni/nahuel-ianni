@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So it is: we are not given a short life but we make it short, and we are not Ill-supplied but wasteful of it."_  
+> _"That which is really beautiful has no need of anything; not more than law, not more than truth, not more than benevolence or modesty."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-27 09:27:14 UTC*</sub>
+<sub>*Last update: 2025-05-27 18:11:29 UTC*</sub>
 
