@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That which is really beautiful has no need of anything; not more than law, not more than truth, not more than benevolence or modesty."_  
+> _"Here is your great soul—the man who has given himself over to Fate; on the other hand, that man is a weakling and a degenerate who struggles and maligns the order of the universe and would rather reform the gods than reform himself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-27 18:11:29 UTC*</sub>
+<sub>*Last update: 2025-05-28 09:27:48 UTC*</sub>
 
