@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Here is your great soul—the man who has given himself over to Fate; on the other hand, that man is a weakling and a degenerate who struggles and maligns the order of the universe and would rather reform the gods than reform himself."_  
+> _"In everything that you do, pause and ask yourself if death is a dreadful thing because it deprives you of this."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-28 09:27:48 UTC*</sub>
+<sub>*Last update: 2025-05-28 18:11:53 UTC*</sub>
 
