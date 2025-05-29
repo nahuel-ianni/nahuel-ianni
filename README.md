@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you wish to be loved, love."_  
+> _"To love only what happens, what was destined. No greater harmony."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-29 09:27:41 UTC*</sub>
+<sub>*Last update: 2025-05-29 18:12:27 UTC*</sub>
 
