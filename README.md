@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In everything that you do, pause and ask yourself if death is a dreadful thing because it deprives you of this."_  
+> _"If you wish to be loved, love."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-28 18:11:53 UTC*</sub>
+<sub>*Last update: 2025-05-29 09:27:41 UTC*</sub>
 
