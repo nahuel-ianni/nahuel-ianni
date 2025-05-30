@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To love only what happens, what was destined. No greater harmony."_  
+> _"How much better it is that you defeat anger than that it defeats itself!"_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-29 18:12:27 UTC*</sub>
+<sub>*Last update: 2025-05-30 09:26:49 UTC*</sub>
 
