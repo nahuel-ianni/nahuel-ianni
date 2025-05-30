@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How much better it is that you defeat anger than that it defeats itself!"_  
+> _"A poor soul burdened with a corpse,' Epictetus calls you."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-30 09:26:49 UTC*</sub>
+<sub>*Last update: 2025-05-30 18:12:26 UTC*</sub>
 
