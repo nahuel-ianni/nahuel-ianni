@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A poor soul burdened with a corpse,' Epictetus calls you."_  
+> _"To the gods I am indebted for having good grandfathers, good parents, a good sister, good teachers, good associates, good kinsmen and friends, nearly everything good."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-05-30 18:12:26 UTC*</sub>
+<sub>*Last update: 2025-05-31 09:24:28 UTC*</sub>
 
