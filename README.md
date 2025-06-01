@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Of all existing things some are in our power, and others are not in our power."_  
+> _"For to be afflicted with endless sorrow at the loss of someone very dear is foolish self-indulgence, and to feel none is inhuman callousness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-05-31 18:10:58 UTC*</sub>
+<sub>*Last update: 2025-06-01 09:25:17 UTC*</sub>
 
