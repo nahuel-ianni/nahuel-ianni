@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For to be afflicted with endless sorrow at the loss of someone very dear is foolish self-indulgence, and to feel none is inhuman callousness."_  
+> _"Your character is simply the sum of your thoughts over time."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-01 09:25:17 UTC*</sub>
+<sub>*Last update: 2025-06-01 18:11:23 UTC*</sub>
 
