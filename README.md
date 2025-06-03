@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Neither worse then or better is a thing made by being praised."_  
+> _"There is nothing in the world so much admired as a man who knows how to bear unhappiness with courage."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-02 18:13:01 UTC*</sub>
+<sub>*Last update: 2025-06-03 09:28:08 UTC*</sub>
 
