@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No great thing is created suddenly, any more than a bunch of grapes or a fig. If you tell me that you desire a fig, I answer that there must be time. Let it first blossom, then bear fruit, then ripen."_  
+> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-04 09:27:54 UTC*</sub>
+<sub>*Last update: 2025-06-04 18:12:54 UTC*</sub>
 
