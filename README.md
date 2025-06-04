@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a small part of life we really live.’ Indeed, all the rest is not life but merely time."_  
+> _"No great thing is created suddenly, any more than a bunch of grapes or a fig. If you tell me that you desire a fig, I answer that there must be time. Let it first blossom, then bear fruit, then ripen."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-03 18:13:21 UTC*</sub>
+<sub>*Last update: 2025-06-04 09:27:54 UTC*</sub>
 
