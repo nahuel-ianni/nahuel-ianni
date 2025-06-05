@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
+> _"Time is fixed for thee, which if thou dost not use for clearing away the clouds from thy mind, it will go and thou wilt go, and it will never return."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-04 18:12:54 UTC*</sub>
+<sub>*Last update: 2025-06-05 09:27:56 UTC*</sub>
 
