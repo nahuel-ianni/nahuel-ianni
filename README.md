@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A person teaching and a person learning,' he said, 'should have the same end in view: the improvement of the latter."_  
+> _"Anger, if not restrained, is frequently more hurtful to us than the injury that provokes it."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-06-06 09:27:28 UTC*</sub>
+<sub>*Last update: 2025-06-06 18:13:03 UTC*</sub>
 
