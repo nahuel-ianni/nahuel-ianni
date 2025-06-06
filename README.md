@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Time is fixed for thee, which if thou dost not use for clearing away the clouds from thy mind, it will go and thou wilt go, and it will never return."_  
+> _"A person teaching and a person learning,' he said, 'should have the same end in view: the improvement of the latter."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-05 09:27:56 UTC*</sub>
+<sub>*Last update: 2025-06-06 09:27:28 UTC*</sub>
 
