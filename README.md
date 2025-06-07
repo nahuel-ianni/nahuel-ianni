@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That which takes effect by chance is not an art."_  
+> _"Whoever chafes at the conditions dealt by fate is unskilled in the art of life; whoever bears with them nobly and makes wise use of the results is a man who deserves to be considered good."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-07 09:24:20 UTC*</sub>
+<sub>*Last update: 2025-06-07 18:11:11 UTC*</sub>
 
