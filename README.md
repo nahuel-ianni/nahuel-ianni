@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Think of yourself as dead. You have lived your life. Now take what’s left and live it properly."_  
+> _"If they are wise, do not quarrel with them; if they are fools, ignore them."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-08 09:24:50 UTC*</sub>
+<sub>*Last update: 2025-06-08 18:10:49 UTC*</sub>
 
