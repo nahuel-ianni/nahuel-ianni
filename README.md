@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whoever chafes at the conditions dealt by fate is unskilled in the art of life; whoever bears with them nobly and makes wise use of the results is a man who deserves to be considered good."_  
+> _"Think of yourself as dead. You have lived your life. Now take what’s left and live it properly."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-07 18:11:11 UTC*</sub>
+<sub>*Last update: 2025-06-08 09:24:50 UTC*</sub>
 
