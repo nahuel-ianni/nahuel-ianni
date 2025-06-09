@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If they are wise, do not quarrel with them; if they are fools, ignore them."_  
+> _"It is a universal law — have no illusion — that every creature alive is attached to nothing so much as to its own self-interest."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-06-08 18:10:49 UTC*</sub>
+<sub>*Last update: 2025-06-09 09:28:32 UTC*</sub>
 
