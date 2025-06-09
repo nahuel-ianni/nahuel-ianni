@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a universal law — have no illusion — that every creature alive is attached to nothing so much as to its own self-interest."_  
+> _"If a person gave your body to any stranger he met on is way, you would certainly be angry. And do you feel no shame in handing over your own mind to be confused and mystified by anyone who happens to verbally attack you?"_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-06-09 09:28:32 UTC*</sub>
+<sub>*Last update: 2025-06-09 18:13:13 UTC*</sub>
 
