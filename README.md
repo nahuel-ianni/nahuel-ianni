@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If a person gave your body to any stranger he met on is way, you would certainly be angry. And do you feel no shame in handing over your own mind to be confused and mystified by anyone who happens to verbally attack you?"_  
+> _"Do what you will. Even if you tear yourself apart, most people will continue doing the same things."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-09 18:13:13 UTC*</sub>
+<sub>*Last update: 2025-06-10 09:28:06 UTC*</sub>
 
