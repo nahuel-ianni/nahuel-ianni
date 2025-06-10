@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do what you will. Even if you tear yourself apart, most people will continue doing the same things."_  
+> _"Until we have begun to go without them, we fail to realize how unnecessary many things are. We've been using them not because we needed them but because we had them."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-10 09:28:06 UTC*</sub>
+<sub>*Last update: 2025-06-10 18:12:56 UTC*</sub>
 
