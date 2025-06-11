@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There are more things to alarm us than to harm us, and we suffer more often in apprehension than reality."_  
+> _"If what philosophers say of the kinship of God and Man be true, what remains for men to do but as Socrates did:—never, when asked one's country, to answer, "I am an Athenian or a Corinthian," but "I am a citizen of the world.""_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-11 09:28:40 UTC*</sub>
+<sub>*Last update: 2025-06-11 18:13:12 UTC*</sub>
 
