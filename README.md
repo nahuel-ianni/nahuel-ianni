@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Until we have begun to go without them, we fail to realize how unnecessary many things are. We've been using them not because we needed them but because we had them."_  
+> _"There are more things to alarm us than to harm us, and we suffer more often in apprehension than reality."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-06-10 18:12:56 UTC*</sub>
+<sub>*Last update: 2025-06-11 09:28:40 UTC*</sub>
 
