@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To pursue the impossible is madness: but it is impossible for evil men not to do things of this sort."_  
+> _"What's the use of overcoming opponent after opponent in the wrestling or boxing rings if you can be overcome by your temper?"_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-12 09:27:50 UTC*</sub>
+<sub>*Last update: 2025-06-12 18:12:49 UTC*</sub>
 
