@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If what philosophers say of the kinship of God and Man be true, what remains for men to do but as Socrates did:—never, when asked one's country, to answer, "I am an Athenian or a Corinthian," but "I am a citizen of the world.""_  
+> _"To pursue the impossible is madness: but it is impossible for evil men not to do things of this sort."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-11 18:13:12 UTC*</sub>
+<sub>*Last update: 2025-06-12 09:27:50 UTC*</sub>
 
