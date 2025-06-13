@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The best compromise between love and good sense is both to feel longing and to conquer it."_  
+> _"The Roman religion was in fact of the nature of a bargain: men paid certain sacrifices and rites, and the gods granted their favour, irrespective of right or wrong."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-13 09:27:47 UTC*</sub>
+<sub>*Last update: 2025-06-13 18:12:42 UTC*</sub>
 
