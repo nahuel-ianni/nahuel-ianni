@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That all is as thinking makes it so – and you control your thinking. So remove your judgements whenever you wish and then there is calm - as the sailor rounding the cape finds smooth water and the welcome of a waveless bay."_  
+> _"Reject your sense of injury and the injury itself disappears."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-14 18:10:54 UTC*</sub>
+<sub>*Last update: 2025-06-15 09:25:21 UTC*</sub>
 
