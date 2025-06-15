@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Reject your sense of injury and the injury itself disappears."_  
+> _"It is the quality of a great soul to scorn great things and to prefer that which is ordinary rather than that which is too great."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-15 09:25:21 UTC*</sub>
+<sub>*Last update: 2025-06-15 18:11:36 UTC*</sub>
 
