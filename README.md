@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nothing happens to any man which he is not formed by nature to bear."_  
+> _"Never say of anything that I've lost it, only that Ive given it back."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-16 09:29:53 UTC*</sub>
+<sub>*Last update: 2025-06-16 18:13:16 UTC*</sub>
 
