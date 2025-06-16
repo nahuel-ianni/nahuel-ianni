@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is the quality of a great soul to scorn great things and to prefer that which is ordinary rather than that which is too great."_  
+> _"Nothing happens to any man which he is not formed by nature to bear."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-15 18:11:36 UTC*</sub>
+<sub>*Last update: 2025-06-16 09:29:53 UTC*</sub>
 
