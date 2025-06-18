@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This thing, what is it in itself, in its own constitution? What is its substance and material?"_  
+> _"Hence the dictum of the greatest of doctors:† ‘Life is short, art is long."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-17 18:13:13 UTC*</sub>
+<sub>*Last update: 2025-06-18 09:28:45 UTC*</sub>
 
