@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Hence the dictum of the greatest of doctors:† ‘Life is short, art is long."_  
+> _"No man, if he be ungrateful, will be unhappy in the future. I allow him no day of grace; he is unhappy forthwith."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-06-18 09:28:45 UTC*</sub>
+<sub>*Last update: 2025-06-18 18:13:11 UTC*</sub>
 
