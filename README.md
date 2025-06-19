@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No man, if he be ungrateful, will be unhappy in the future. I allow him no day of grace; he is unhappy forthwith."_  
+> _"No man is free until he is a master of himself!!"_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-18 18:13:11 UTC*</sub>
+<sub>*Last update: 2025-06-19 09:28:07 UTC*</sub>
 
