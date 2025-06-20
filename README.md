@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We should realize that an opinion is not easily formed unless a person says and hears the same things every day and practises them in real life."_  
+> _"Men are disturbed, not by things, but by the principles and notions which they form concerning things."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-06-20 09:27:29 UTC*</sub>
+<sub>*Last update: 2025-06-20 18:12:43 UTC*</sub>
 
