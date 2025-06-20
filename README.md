@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you would be a reader, read; if a writer, write."_  
+> _"We should realize that an opinion is not easily formed unless a person says and hears the same things every day and practises them in real life."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-06-19 18:12:41 UTC*</sub>
+<sub>*Last update: 2025-06-20 09:27:29 UTC*</sub>
 
