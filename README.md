@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men are disturbed, not by things, but by the principles and notions which they form concerning things."_  
+> _"Do not run hither and thither and distract yourself by changing your abode; for such restlessness is the sign of a disordered spirit."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-20 18:12:43 UTC*</sub>
+<sub>*Last update: 2025-06-21 09:26:22 UTC*</sub>
 
