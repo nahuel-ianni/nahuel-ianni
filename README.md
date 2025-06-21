@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not run hither and thither and distract yourself by changing your abode; for such restlessness is the sign of a disordered spirit."_  
+> _"Our actions may be impeded by them, but there can be no impeding our intentions or our dispositions. Because we can accommodate and adapt. The mind adapts and converts to its own purposes the obstacle to our acting."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-21 09:26:22 UTC*</sub>
+<sub>*Last update: 2025-06-21 18:11:06 UTC*</sub>
 
