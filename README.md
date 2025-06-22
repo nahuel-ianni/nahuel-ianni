@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Does the emerald lose its beauty for lack of admiration?"_  
+> _"We cannot choose our external circumstances, but we can always choose how we respond to them."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-22 09:25:14 UTC*</sub>
+<sub>*Last update: 2025-06-22 18:11:34 UTC*</sub>
 
