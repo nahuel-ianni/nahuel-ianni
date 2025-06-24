@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nothing is burdensome if taken lightly, and nothing need arouse one's irritation so long as one doesn't make it bigger than it is by getting irritated."_  
+> _"Why all this guesswork? You can see what needs to be done. If you can see the road, follow it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-24 09:29:15 UTC*</sub>
+<sub>*Last update: 2025-06-24 18:13:12 UTC*</sub>
 
