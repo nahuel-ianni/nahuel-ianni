@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Adopt new habits yourself: consolidate your principles by putting them into practice."_  
+> _"Nothing is burdensome if taken lightly, and nothing need arouse one's irritation so long as one doesn't make it bigger than it is by getting irritated."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-23 18:13:09 UTC*</sub>
+<sub>*Last update: 2025-06-24 09:29:15 UTC*</sub>
 
