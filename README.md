@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This will not be a gentle prescription for healing, but cautery and the knife. What shall I achieve? That a soul which has conquered so many miseries will be ashamed to worry about one more wound in a body which already has so many scars."_  
+> _"That way you'll see human life for what it is. Smoke. Nothing. Especially when you recall that once things alter they cease to exist through all the endless years to come. Then why such turmoil?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-25 09:30:07 UTC*</sub>
+<sub>*Last update: 2025-06-25 18:13:26 UTC*</sub>
 
