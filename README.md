@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That way you'll see human life for what it is. Smoke. Nothing. Especially when you recall that once things alter they cease to exist through all the endless years to come. Then why such turmoil?"_  
+> _"Those proficient praise no one, blame no one, and accuse no one. They say nothing concerning their self as being anybody or knowing anything."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-06-25 18:13:26 UTC*</sub>
+<sub>*Last update: 2025-06-26 09:28:38 UTC*</sub>
 
