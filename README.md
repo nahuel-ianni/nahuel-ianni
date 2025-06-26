@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Those proficient praise no one, blame no one, and accuse no one. They say nothing concerning their self as being anybody or knowing anything."_  
+> _"The shortest route to wealth is the contempt of wealth."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-26 09:28:38 UTC*</sub>
+<sub>*Last update: 2025-06-26 18:13:03 UTC*</sub>
 
