@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The shortest route to wealth is the contempt of wealth."_  
+> _"From my great-grandfather: not to have attended schools for the public; to have had good teachers at home, and to realize that this is the sort of thing on which one should spend lavishly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-26 18:13:03 UTC*</sub>
+<sub>*Last update: 2025-06-27 09:27:49 UTC*</sub>
 
