@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"From my great-grandfather: not to have attended schools for the public; to have had good teachers at home, and to realize that this is the sort of thing on which one should spend lavishly."_  
+> _"No one willingly reverts to the past unless all his actions have passed his own censorship, which is never deceived."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-27 09:27:49 UTC*</sub>
+<sub>*Last update: 2025-06-27 18:12:43 UTC*</sub>
 
