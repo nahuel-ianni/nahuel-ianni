@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No one willingly reverts to the past unless all his actions have passed his own censorship, which is never deceived."_  
+> _"In the morning when thou risest unwillingly, let this thought be present - I am rising to the work of a human being. Why then am I dissatisfied if I am going to do the things for which I exist and for which I was brought into the world?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-27 18:12:43 UTC*</sub>
+<sub>*Last update: 2025-06-28 09:27:55 UTC*</sub>
 
