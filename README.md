@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In the morning when thou risest unwillingly, let this thought be present - I am rising to the work of a human being. Why then am I dissatisfied if I am going to do the things for which I exist and for which I was brought into the world?"_  
+> _"The grief that has been conquered by reason is calmed for ever."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-28 09:27:55 UTC*</sub>
+<sub>*Last update: 2025-06-28 18:11:33 UTC*</sub>
 
