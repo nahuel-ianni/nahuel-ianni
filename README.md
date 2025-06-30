@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nothing is more scandalous than a man that is proud of his humility."_  
+> _"And when the soul has yielded to pleasure, its functions and actions grow weak, and any undertaking comes from a nerveless and unsteady source."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-06-29 18:11:40 UTC*</sub>
+<sub>*Last update: 2025-06-30 09:30:20 UTC*</sub>
 
