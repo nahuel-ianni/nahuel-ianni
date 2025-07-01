@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Part of my joy in learning is that it puts me in a position to teach; nothing, however outstanding and however helpful, will ever give me any pleasure if the knowledge is for my benefit alone."_  
+> _"As far as you can, get into the habit of asking yourself in relation to any action taken by another: "What is his point of reference here?" But begin with yourself: examine yourself first."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-06-30 18:13:02 UTC*</sub>
+<sub>*Last update: 2025-07-01 09:29:50 UTC*</sub>
 
