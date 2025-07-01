@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"As far as you can, get into the habit of asking yourself in relation to any action taken by another: "What is his point of reference here?" But begin with yourself: examine yourself first."_  
+> _"Do not let the future disturb you, for you will arrive there, if you arrive, with the same reason you now apply to the present."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-01 09:29:50 UTC*</sub>
+<sub>*Last update: 2025-07-01 18:12:46 UTC*</sub>
 
