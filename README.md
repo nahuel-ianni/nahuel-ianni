@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not let the future disturb you, for you will arrive there, if you arrive, with the same reason you now apply to the present."_  
+> _"From my grandfather Verus I learned good morals and the government of my temper."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-01 18:12:46 UTC*</sub>
+<sub>*Last update: 2025-07-02 09:30:08 UTC*</sub>
 
