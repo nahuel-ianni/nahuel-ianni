@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is nothing the wise man does reluctantly. He escapes necessity because he wills what necessity is going to force on him."_  
+> _"Disgraceful: for the soul to give up when the body is still going strong."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-02 18:13:20 UTC*</sub>
+<sub>*Last update: 2025-07-03 09:28:25 UTC*</sub>
 
