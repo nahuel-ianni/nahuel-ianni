@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Disgraceful: for the soul to give up when the body is still going strong."_  
+> _"The primary indication, to my thinking, of a well-ordered mind is a man's ability to remain in one place and linger in his own company."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-03 09:28:25 UTC*</sub>
+<sub>*Last update: 2025-07-03 18:12:43 UTC*</sub>
 
