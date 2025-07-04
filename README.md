@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The primary indication, to my thinking, of a well-ordered mind is a man's ability to remain in one place and linger in his own company."_  
+> _"A man must stand erect, not be kept erect by others."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-03 18:12:43 UTC*</sub>
+<sub>*Last update: 2025-07-04 09:28:40 UTC*</sub>
 
