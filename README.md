@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A man must stand erect, not be kept erect by others."_  
+> _"Either teach them better if it be in thy power; or if it be not, remember that for this use, to bear with them patiently, was mildness and goodness granted unto thee."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-04 09:28:40 UTC*</sub>
+<sub>*Last update: 2025-07-04 18:12:23 UTC*</sub>
 
