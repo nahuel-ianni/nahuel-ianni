@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Freedom, you see, is having events go in accordance with our will, never contrary to it."_  
+> _"Live every day as if they last."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-05 09:25:28 UTC*</sub>
+<sub>*Last update: 2025-07-05 18:11:16 UTC*</sub>
 
