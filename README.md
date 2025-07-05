@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Either teach them better if it be in thy power; or if it be not, remember that for this use, to bear with them patiently, was mildness and goodness granted unto thee."_  
+> _"Freedom, you see, is having events go in accordance with our will, never contrary to it."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-04 18:12:23 UTC*</sub>
+<sub>*Last update: 2025-07-05 09:25:28 UTC*</sub>
 
