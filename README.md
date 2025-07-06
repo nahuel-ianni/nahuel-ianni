@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Live every day as if they last."_  
+> _"There is no great genius without tincture of madness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-05 18:11:16 UTC*</sub>
+<sub>*Last update: 2025-07-06 09:25:09 UTC*</sub>
 
