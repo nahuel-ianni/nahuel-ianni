@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life is long, if only you knew how to use it."_  
+> _"What then is good? The knowledge of things. What is evil? The lack of knowledge of things."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-07-06 18:11:35 UTC*</sub>
+<sub>*Last update: 2025-07-07 09:30:30 UTC*</sub>
 
