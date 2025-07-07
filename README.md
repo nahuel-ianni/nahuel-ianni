@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What then is good? The knowledge of things. What is evil? The lack of knowledge of things."_  
+> _"Try to enjoy the great festival of life with other men."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-07 09:30:30 UTC*</sub>
+<sub>*Last update: 2025-07-07 18:13:05 UTC*</sub>
 
