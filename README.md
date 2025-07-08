@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Try to enjoy the great festival of life with other men."_  
+> _"If anyone tells you that a certain person speaks ill of you, do not make excuses about what is said of you, but answer: “He was ignorant of my other faults, else he would not have mentioned these alone.“"_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-07-07 18:13:05 UTC*</sub>
+<sub>*Last update: 2025-07-08 09:29:18 UTC*</sub>
 
