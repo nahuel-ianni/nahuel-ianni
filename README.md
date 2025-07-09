@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Our life is a warfare, and a mere pilgrimage."_  
+> _"Avoid banquets which are given by strangers and by ignorant persons."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-08 18:13:16 UTC*</sub>
+<sub>*Last update: 2025-07-09 09:30:18 UTC*</sub>
 
