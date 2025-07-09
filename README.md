@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Avoid banquets which are given by strangers and by ignorant persons."_  
+> _"Set aside a certain number of days, during which you shall be content with the scantiest and cheapest fare, with course and rough dress, saying to yourself the while: 'Is this the condition that I feared?"_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-09 09:30:18 UTC*</sub>
+<sub>*Last update: 2025-07-09 18:13:11 UTC*</sub>
 
