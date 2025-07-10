@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Set aside a certain number of days, during which you shall be content with the scantiest and cheapest fare, with course and rough dress, saying to yourself the while: 'Is this the condition that I feared?"_  
+> _"Finally, in every event which leads you to sorrow, remember to use this principle: that this is not a misfortune, but that to bear it like a brave man is good fortune."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-09 18:13:11 UTC*</sub>
+<sub>*Last update: 2025-07-10 09:30:07 UTC*</sub>
 
