@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The one to whom nothing was refused, whose tears were always wiped away by an anxious mother, will not abide being offended."_  
+> _"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-10 18:13:36 UTC*</sub>
+<sub>*Last update: 2025-07-11 09:29:06 UTC*</sub>
 
