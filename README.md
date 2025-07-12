@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do every act of your life as if it were your last."_  
+> _"The essence of philosophy is that a man should so live that his happiness shall depend as little as possible on external things."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-12 09:25:54 UTC*</sub>
+<sub>*Last update: 2025-07-12 18:11:53 UTC*</sub>
 
