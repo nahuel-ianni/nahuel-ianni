@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The essence of philosophy is that a man should so live that his happiness shall depend as little as possible on external things."_  
+> _"The only really leisured people are those who devote time to acquiring true knowledge rather than trivia. ."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-12 18:11:53 UTC*</sub>
+<sub>*Last update: 2025-07-13 09:28:22 UTC*</sub>
 
