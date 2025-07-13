@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The only really leisured people are those who devote time to acquiring true knowledge rather than trivia. ."_  
+> _"Be your own master, and look at things as a man, as a human being, as a citizen, as a mortal creature."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-13 09:28:22 UTC*</sub>
+<sub>*Last update: 2025-07-13 18:11:38 UTC*</sub>
 
