@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Prosperity does not elevate the sage and adversity does not depress him. For he has always made the effort to rely as much as possible on himself and to derive all delight from himself."_  
+> _"For in this Case, we are not to give Credit to the Many, who say, that none ought to be educated but the Free; but rather to the Philosophers, who say, that the Well-educated alone are free."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-14 09:34:42 UTC*</sub>
+<sub>*Last update: 2025-07-14 18:14:15 UTC*</sub>
 
