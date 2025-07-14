@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Be your own master, and look at things as a man, as a human being, as a citizen, as a mortal creature."_  
+> _"Prosperity does not elevate the sage and adversity does not depress him. For he has always made the effort to rely as much as possible on himself and to derive all delight from himself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-13 18:11:38 UTC*</sub>
+<sub>*Last update: 2025-07-14 09:34:42 UTC*</sub>
 
