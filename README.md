@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To pass through this brief life as nature demands. To give it up without complaint. Like an olive that ripens and falls. Praising its mother, thanking the tree it grew on."_  
+> _"Words need to be sown like seeds. No matter how tiny a seed may be, when in lands in the right sort of ground it unfolds its strength and from being minute expands and grows to a massive size."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-16 09:32:58 UTC*</sub>
+<sub>*Last update: 2025-07-16 18:13:45 UTC*</sub>
 
