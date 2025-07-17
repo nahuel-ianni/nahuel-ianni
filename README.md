@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When Zeno received news of a shipwreck and heard that all his luggage had been sunk he said, "Fortune bids me to be a less encumbered philosopher.""_  
+> _"If any be unhappy, let him remember that he is unhappy by reason of himself alone. For God hath made all men to enjoy felicity and constancy of good."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-17 09:31:50 UTC*</sub>
+<sub>*Last update: 2025-07-17 18:14:07 UTC*</sub>
 
