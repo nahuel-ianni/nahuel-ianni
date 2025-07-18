@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If any be unhappy, let him remember that he is unhappy by reason of himself alone. For God hath made all men to enjoy felicity and constancy of good."_  
+> _"When then any man assents to that which is false, be assured that he did not intend to assent to it as false, for every soul is unwillingly deprived of the truth, as Plato says; but the falsity seemed to him to be true."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-07-17 18:14:07 UTC*</sub>
+<sub>*Last update: 2025-07-18 09:31:42 UTC*</sub>
 
