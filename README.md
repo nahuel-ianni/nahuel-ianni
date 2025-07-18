@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When then any man assents to that which is false, be assured that he did not intend to assent to it as false, for every soul is unwillingly deprived of the truth, as Plato says; but the falsity seemed to him to be true."_  
+> _"Let your will to avoid have no concern with what is not in man's power; direct it only to things in man's power that are contrary to nature."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-07-18 09:31:42 UTC*</sub>
+<sub>*Last update: 2025-07-18 18:13:35 UTC*</sub>
 
