@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Let your will to avoid have no concern with what is not in man's power; direct it only to things in man's power that are contrary to nature."_  
+> _"If they are wise, do not quarrel with them; if they are fools, ignore them."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-07-18 18:13:35 UTC*</sub>
+<sub>*Last update: 2025-07-19 09:26:42 UTC*</sub>
 
