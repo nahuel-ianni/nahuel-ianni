@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you wish Pythocles to have pleasure for ever, do not add to his pleasures, but subtract from his desires."_  
+> _"It was my tutor who dissuaded me from patronizing Green or Blue at the races, or Light or Heavy in the ring."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-20 09:26:47 UTC*</sub>
+<sub>*Last update: 2025-07-20 18:12:00 UTC*</sub>
 
