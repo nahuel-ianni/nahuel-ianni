@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Dwell on the beauty of life. Watch the stars, and see yourself running with them."_  
+> _"If you wish Pythocles to have pleasure for ever, do not add to his pleasures, but subtract from his desires."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-19 18:12:09 UTC*</sub>
+<sub>*Last update: 2025-07-20 09:26:47 UTC*</sub>
 
