@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It was my tutor who dissuaded me from patronizing Green or Blue at the races, or Light or Heavy in the ring."_  
+> _"There is but one chain holding us in fetters, and that is our love of life."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-20 18:12:00 UTC*</sub>
+<sub>*Last update: 2025-07-21 09:35:25 UTC*</sub>
 
