@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is but one chain holding us in fetters, and that is our love of life."_  
+> _"In every good person, there lives a god. Which god? We cannot be sure - but it is a god."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-07-21 09:35:25 UTC*</sub>
+<sub>*Last update: 2025-07-21 18:14:18 UTC*</sub>
 
