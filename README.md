@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In every good person, there lives a god. Which god? We cannot be sure - but it is a god."_  
+> _"Men are disturbed not by the things which happen, but by the opinion about the things."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-21 18:14:18 UTC*</sub>
+<sub>*Last update: 2025-07-22 09:32:29 UTC*</sub>
 
