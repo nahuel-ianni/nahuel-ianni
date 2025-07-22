@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men are disturbed not by the things which happen, but by the opinion about the things."_  
+> _"One of the causes of the troubles that beset us is the way our lives are guided by the example of others; instead of being set to rights by reason we’re seduced by convention."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-22 09:32:29 UTC*</sub>
+<sub>*Last update: 2025-07-22 18:13:59 UTC*</sub>
 
