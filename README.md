@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Art thou angry with him whose armpits stink? Art thou angry with him whose mouth smells foul?"_  
+> _"For where you find unrest, grief, fear, frustrated desire, failed aversion, jealousy and envy, happiness has no room for admittance. And where values are false, these passions inevitably follow."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-23 09:34:10 UTC*</sub>
+<sub>*Last update: 2025-07-23 18:13:24 UTC*</sub>
 
