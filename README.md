@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"One of the causes of the troubles that beset us is the way our lives are guided by the example of others; instead of being set to rights by reason we’re seduced by convention."_  
+> _"Art thou angry with him whose armpits stink? Art thou angry with him whose mouth smells foul?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-22 18:13:59 UTC*</sub>
+<sub>*Last update: 2025-07-23 09:34:10 UTC*</sub>
 
