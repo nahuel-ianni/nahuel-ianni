@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For where you find unrest, grief, fear, frustrated desire, failed aversion, jealousy and envy, happiness has no room for admittance. And where values are false, these passions inevitably follow."_  
+> _"In this infinity then what is the difference between him who lives three days and him who lives three generations? Always."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-23 18:13:24 UTC*</sub>
+<sub>*Last update: 2025-07-24 09:32:02 UTC*</sub>
 
