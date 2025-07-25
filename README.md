@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No matter what anyone says or does, my task is to be good. like gold or emerald or purple repeating to itself, "no matter what anyone says or does, my task is to be emerald, my color undiminished.""_  
+> _"It is always our choice whether or not we wish to pay the price for life's rewards. And often it is best for us not to pay the price, for the price might be our integrity."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-25 09:31:40 UTC*</sub>
+<sub>*Last update: 2025-07-25 18:13:47 UTC*</sub>
 
