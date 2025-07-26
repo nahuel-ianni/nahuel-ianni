@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Religion is regarded by the ignorant as true, by the wise as false, and by the rulers as useful."_  
+> _"And he who pursues pleasure will not abstain from injustice, and this is plainly impiety."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-26 09:26:55 UTC*</sub>
+<sub>*Last update: 2025-07-26 18:12:39 UTC*</sub>
 
