@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Every man is worth just so much as the things about which he busies himself."_  
+> _"It is impossible for a man to learn what he thinks he already knows."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-27 09:27:41 UTC*</sub>
+<sub>*Last update: 2025-07-27 18:12:34 UTC*</sub>
 
