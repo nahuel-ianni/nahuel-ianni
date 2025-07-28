@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is impossible for a man to learn what he thinks he already knows."_  
+> _"We do not receive a life that is short, but rather we make it so; we are not beggar in it, but spendthrifts."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-27 18:12:34 UTC*</sub>
+<sub>*Last update: 2025-07-28 09:34:52 UTC*</sub>
 
