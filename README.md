@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We do not receive a life that is short, but rather we make it so; we are not beggar in it, but spendthrifts."_  
+> _"Do not let the future disturb you, for you will arrive there, if you arrive, with the same reason you now apply to the present."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-28 09:34:52 UTC*</sub>
+<sub>*Last update: 2025-07-28 18:14:12 UTC*</sub>
 
