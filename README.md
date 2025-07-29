@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We Stoics are not subjects of a despot: each of us lays claim to his own freedom."_  
+> _"For in this Case, we are not to give Credit to the Many, who say, that none ought to be educated but the Free; but rather to the Philosophers, who say, that the Well-educated alone are free."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-29 09:33:29 UTC*</sub>
+<sub>*Last update: 2025-07-29 18:14:46 UTC*</sub>
 
