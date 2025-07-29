@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not let the future disturb you, for you will arrive there, if you arrive, with the same reason you now apply to the present."_  
+> _"We Stoics are not subjects of a despot: each of us lays claim to his own freedom."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-07-28 18:14:12 UTC*</sub>
+<sub>*Last update: 2025-07-29 09:33:29 UTC*</sub>
 
