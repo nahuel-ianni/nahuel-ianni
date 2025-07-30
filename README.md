@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For in this Case, we are not to give Credit to the Many, who say, that none ought to be educated but the Free; but rather to the Philosophers, who say, that the Well-educated alone are free."_  
+> _"Confine yourself to the present."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-07-29 18:14:46 UTC*</sub>
+<sub>*Last update: 2025-07-30 09:35:11 UTC*</sub>
 
