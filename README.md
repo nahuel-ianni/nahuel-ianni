@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How ridiculous and what a stranger he is who is surprised at anything which happens in life."_  
+> _"Every circumstance comes with two handles, which one of which you can hold it, while with the other conditions are insupportable."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-07-31 09:33:30 UTC*</sub>
+<sub>*Last update: 2025-07-31 18:14:31 UTC*</sub>
 
