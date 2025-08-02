@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is nothing in the world so much admired as a man who knows how to bear unhappiness with courage."_  
+> _"Do external things distract you? Then make time for yourself to learn something worthwhile; stop letting yourself be pulled in all directions."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-01 18:14:12 UTC*</sub>
+<sub>*Last update: 2025-08-02 09:29:11 UTC*</sub>
 
