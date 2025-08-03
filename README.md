@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He who eats my bread does my will."_  
+> _"And then we’ll be emulating Socrates,* once we’re able to write hymns of praise in prison."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-03 09:27:38 UTC*</sub>
+<sub>*Last update: 2025-08-03 18:12:53 UTC*</sub>
 
