@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"At feasts, remember that you are entertaining two guests, body and soul. What you give to the body, you presently lose; what you give to the soul, you keep for ever."_  
+> _"To win true freeedom you must be a slave to philosophy."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-04 09:39:13 UTC*</sub>
+<sub>*Last update: 2025-08-04 18:14:44 UTC*</sub>
 
