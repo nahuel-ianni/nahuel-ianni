@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And then we’ll be emulating Socrates,* once we’re able to write hymns of praise in prison."_  
+> _"At feasts, remember that you are entertaining two guests, body and soul. What you give to the body, you presently lose; what you give to the soul, you keep for ever."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-08-03 18:12:53 UTC*</sub>
+<sub>*Last update: 2025-08-04 09:39:13 UTC*</sub>
 
