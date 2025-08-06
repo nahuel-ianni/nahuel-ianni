@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Philosophy is good advice; and no one can give advice at the top of his lungs."_  
+> _"In everything that you do, pause and ask yourself if death is a dreadful thing because it deprives you of this."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-05 18:15:34 UTC*</sub>
+<sub>*Last update: 2025-08-06 09:34:42 UTC*</sub>
 
