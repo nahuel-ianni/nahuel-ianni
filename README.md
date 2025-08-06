@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In everything that you do, pause and ask yourself if death is a dreadful thing because it deprives you of this."_  
+> _"If you are distressed about anything, the pain is not due to the thing but to your own estimate of it."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-06 09:34:42 UTC*</sub>
+<sub>*Last update: 2025-08-06 18:14:46 UTC*</sub>
 
