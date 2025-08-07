@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For Fate/ The willing leads, the unwilling drags along."_  
+> _"In this infinity then what is the difference between him who lives three days and him who lives three generations? Always."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-07 09:33:49 UTC*</sub>
+<sub>*Last update: 2025-08-07 18:14:53 UTC*</sub>
 
