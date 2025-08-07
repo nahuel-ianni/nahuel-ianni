@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you are distressed about anything, the pain is not due to the thing but to your own estimate of it."_  
+> _"For Fate/ The willing leads, the unwilling drags along."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-06 18:14:46 UTC*</sub>
+<sub>*Last update: 2025-08-07 09:33:49 UTC*</sub>
 
