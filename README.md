@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In this infinity then what is the difference between him who lives three days and him who lives three generations? Always."_  
+> _"Unbroken prosperity cannot bear a single blow; but he who has waged an unceasing strife with his misfortunes has gained a thicker skin by his sufferings, yields to no disaster, and even though he fall yet fights on his knee."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-07 18:14:53 UTC*</sub>
+<sub>*Last update: 2025-08-08 09:33:54 UTC*</sub>
 
