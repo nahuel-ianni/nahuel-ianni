@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Unbroken prosperity cannot bear a single blow; but he who has waged an unceasing strife with his misfortunes has gained a thicker skin by his sufferings, yields to no disaster, and even though he fall yet fights on his knee."_  
+> _"He is an abscess on the universe who withdraws and separates himself from the reason of our common nature through being displeased with the things that happen; for the same nature that produces these things has produced you, too."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-08 09:33:54 UTC*</sub>
+<sub>*Last update: 2025-08-08 18:11:50 UTC*</sub>
 
