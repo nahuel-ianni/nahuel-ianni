@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"From the philosopher Catulus, never to be dismissive of a friend's accusation, even if it seems unreasonable, but to make every effort to restore the relationship to its normal condition."_  
+> _"If i had not been admitted to these studies it would not have been worth while to have been born."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-10 09:26:33 UTC*</sub>
+<sub>*Last update: 2025-08-10 18:11:54 UTC*</sub>
 
