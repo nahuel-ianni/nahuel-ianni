@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If i had not been admitted to these studies it would not have been worth while to have been born."_  
+> _"Remember, nothing belongs to you but your flesh and blood—and nothing else is under your control."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-10 18:11:54 UTC*</sub>
+<sub>*Last update: 2025-08-11 09:33:09 UTC*</sub>
 
