@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember, nothing belongs to you but your flesh and blood—and nothing else is under your control."_  
+> _"Know, first, who you are, and then adorn yourself accordingly."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-11 09:33:09 UTC*</sub>
+<sub>*Last update: 2025-08-11 18:14:19 UTC*</sub>
 
