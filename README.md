@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"While we are postponing, life speeds by."_  
+> _"Nothing has such power to broaden the mind as the ability to investigate systematically and truly all that comes under thy observation in life."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-12 09:29:37 UTC*</sub>
+<sub>*Last update: 2025-08-12 18:14:06 UTC*</sub>
 
