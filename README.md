@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Know, first, who you are, and then adorn yourself accordingly."_  
+> _"While we are postponing, life speeds by."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-11 18:14:19 UTC*</sub>
+<sub>*Last update: 2025-08-12 09:29:37 UTC*</sub>
 
