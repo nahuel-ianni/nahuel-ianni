@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So here is a rule to remember in future, when anything tempts you to feel bitter: not, ‘This is a misfortune,’ but ‘To bear this worthily is good fortune."_  
+> _"God save me from fools with a little philosophy—no one is more difficult to reach."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-13 09:29:48 UTC*</sub>
+<sub>*Last update: 2025-08-13 18:13:44 UTC*</sub>
 
