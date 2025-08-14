@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"God save me from fools with a little philosophy—no one is more difficult to reach."_  
+> _"Things?—I was once a fortunate man, but I lost it, I know not how.—But fortunate means that a man has assigned to himself a good fortune: and a good fortune is good disposition of the soul, good emotions, good actions."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-13 18:13:44 UTC*</sub>
+<sub>*Last update: 2025-08-14 09:30:26 UTC*</sub>
 
