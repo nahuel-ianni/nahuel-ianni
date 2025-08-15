@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Death is such as generation is, a mystery of nature; a composition out of the same elements, and a decomposition into the same."_  
+> _"Certain people have good, ordinary blood and others have an animated, lively sort of blood that comes to the face quickly."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-15 09:28:04 UTC*</sub>
+<sub>*Last update: 2025-08-15 18:13:42 UTC*</sub>
 
