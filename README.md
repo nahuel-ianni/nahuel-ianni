@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Finally, waiting for death with a cheerful mind, as being nothing else than a dissolution of the elements of which every living being is compounded."_  
+> _"Death is such as generation is, a mystery of nature; a composition out of the same elements, and a decomposition into the same."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-14 18:13:53 UTC*</sub>
+<sub>*Last update: 2025-08-15 09:28:04 UTC*</sub>
 
