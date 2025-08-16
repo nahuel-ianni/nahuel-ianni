@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Every circumstance comes with two handles, which one of which you can hold it, while with the other conditions are insupportable."_  
+> _"Some men have shrunk so far into dark corners that objects in bright daylight seem quite blurred to them.’ A."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-16 09:25:33 UTC*</sub>
+<sub>*Last update: 2025-08-16 18:11:34 UTC*</sub>
 
