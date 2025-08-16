@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Certain people have good, ordinary blood and others have an animated, lively sort of blood that comes to the face quickly."_  
+> _"Every circumstance comes with two handles, which one of which you can hold it, while with the other conditions are insupportable."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-15 18:13:42 UTC*</sub>
+<sub>*Last update: 2025-08-16 09:25:33 UTC*</sub>
 
