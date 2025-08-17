@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Some men have shrunk so far into dark corners that objects in bright daylight seem quite blurred to them.’ A."_  
+> _"Objective judgment, now, at this very moment. Unselfish action, now, at this very moment. Willing acceptance—now, at this very moment—of all external events. That’s all you need."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-16 18:11:34 UTC*</sub>
+<sub>*Last update: 2025-08-17 09:25:20 UTC*</sub>
 
