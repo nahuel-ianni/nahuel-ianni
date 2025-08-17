@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Objective judgment, now, at this very moment. Unselfish action, now, at this very moment. Willing acceptance—now, at this very moment—of all external events. That’s all you need."_  
+> _"Don't hope that events will turn out the way you want, welcome events in whichever way they happen: this is the path to peace."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-17 09:25:20 UTC*</sub>
+<sub>*Last update: 2025-08-17 18:12:09 UTC*</sub>
 
