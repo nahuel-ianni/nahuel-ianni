@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Don't hope that events will turn out the way you want, welcome events in whichever way they happen: this is the path to peace."_  
+> _"In the long run, every man will pay the penalty for his own misdeeds. The man who remembers this will be angry with no one, indignant with no one, revile no one, blame no one, offend no one, hate no one."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-08-17 18:12:09 UTC*</sub>
+<sub>*Last update: 2025-08-18 09:32:32 UTC*</sub>
 
