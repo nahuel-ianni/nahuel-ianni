@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no enjoying the possession of anything valuable unless one has someone to share it with."_  
+> _"If you’re honest and straightforward and mean well, it should show in your eyes. It should be unmistakable."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-18 18:13:47 UTC*</sub>
+<sub>*Last update: 2025-08-19 09:27:12 UTC*</sub>
 
