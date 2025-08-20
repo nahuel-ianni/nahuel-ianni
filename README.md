@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"His last words heard on earth came after he'd let off a louder noise from his easiest channel of communication: 'Oh my! I think I've shit myself.' For all I know, he did. He certainly shat on everything else."_  
+> _"The pomps and glories which he despised were all his; what to most men is an ambition or a dream, to him was a round of weary tasks which nothing but the stern sense of duty could carry him through. And he did his work well."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-19 18:13:00 UTC*</sub>
+<sub>*Last update: 2025-08-20 09:27:57 UTC*</sub>
 
