@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The pomps and glories which he despised were all his; what to most men is an ambition or a dream, to him was a round of weary tasks which nothing but the stern sense of duty could carry him through. And he did his work well."_  
+> _"Ignorance is no cure for suffering."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-20 09:27:57 UTC*</sub>
+<sub>*Last update: 2025-08-20 18:13:24 UTC*</sub>
 
