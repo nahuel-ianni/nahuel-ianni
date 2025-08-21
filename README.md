@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ignorance is no cure for suffering."_  
+> _"Do not try to seem wise to others. If you want to live a wise life, live it on your own terms and in your own eyes."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-20 18:13:24 UTC*</sub>
+<sub>*Last update: 2025-08-21 09:28:08 UTC*</sub>
 
