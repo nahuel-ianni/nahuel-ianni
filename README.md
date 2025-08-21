@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not try to seem wise to others. If you want to live a wise life, live it on your own terms and in your own eyes."_  
+> _"If you choose, you are free; if you choose, you need blame no man—accuse no man. All things will be at once according to your mind and according to the Mind of God."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-08-21 09:28:08 UTC*</sub>
+<sub>*Last update: 2025-08-21 18:13:08 UTC*</sub>
 
