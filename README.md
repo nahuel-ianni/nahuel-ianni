@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _""Non est ad astra mollis e terris via" - "There is no easy way from the earth to the stars.""_  
+> _"If some one tells you that so and so speaks ill of you, do not defend yourself against what he says, but answer, 'He did not know my other faults, or he would not have mentioned these alone.'"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-22 09:26:54 UTC*</sub>
+<sub>*Last update: 2025-08-22 18:12:36 UTC*</sub>
 
