@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you choose, you are free; if you choose, you need blame no man—accuse no man. All things will be at once according to your mind and according to the Mind of God."_  
+> _""Non est ad astra mollis e terris via" - "There is no easy way from the earth to the stars.""_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-21 18:13:08 UTC*</sub>
+<sub>*Last update: 2025-08-22 09:26:54 UTC*</sub>
 
