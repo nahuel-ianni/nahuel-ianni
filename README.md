@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If some one tells you that so and so speaks ill of you, do not defend yourself against what he says, but answer, 'He did not know my other faults, or he would not have mentioned these alone.'"_  
+> _"Some men have shrunk so far into dark corners that objects in bright daylight seem quite blurred to them.’ A."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-22 18:12:36 UTC*</sub>
+<sub>*Last update: 2025-08-23 09:23:37 UTC*</sub>
 
