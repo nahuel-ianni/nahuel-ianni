@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Some men have shrunk so far into dark corners that objects in bright daylight seem quite blurred to them.’ A."_  
+> _"But death certainly, and life, honour and dishonour, pain and pleasure, all these things equally happen to good men and bad, being things which make us neither better nor worse. Therefore they are neither good nor evil."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-23 09:23:37 UTC*</sub>
+<sub>*Last update: 2025-08-23 18:10:52 UTC*</sub>
 
