@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"But death certainly, and life, honour and dishonour, pain and pleasure, all these things equally happen to good men and bad, being things which make us neither better nor worse. Therefore they are neither good nor evil."_  
+> _"Put from you the belief that I have been wronged and with it will go the feeling. Reject your sense of injury, and the injury itself disappears."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-23 18:10:52 UTC*</sub>
+<sub>*Last update: 2025-08-24 09:23:20 UTC*</sub>
 
