@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Wherein Antoninus recordeth, What and of whom, whether Parents, Friends, or Masters; by their good examples, or good advice and counsel, he had learned."_  
+> _"Give up your thirst for books so that you do not die a grouch."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-24 18:11:17 UTC*</sub>
+<sub>*Last update: 2025-08-25 09:28:46 UTC*</sub>
 
