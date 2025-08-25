@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Give up your thirst for books so that you do not die a grouch."_  
+> _"Death is a release from the impressions of the senses, and from desires that make us their puppets, and from the vagaries of the mind, and from the hard service of the flesh."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-25 09:28:46 UTC*</sub>
+<sub>*Last update: 2025-08-25 18:13:50 UTC*</sub>
 
