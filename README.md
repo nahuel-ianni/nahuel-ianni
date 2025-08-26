@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Death is a release from the impressions of the senses, and from desires that make us their puppets, and from the vagaries of the mind, and from the hard service of the flesh."_  
+> _"Inwardly, we ought to be different in all respects, but our exterior should conform to society."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-25 18:13:50 UTC*</sub>
+<sub>*Last update: 2025-08-26 09:28:02 UTC*</sub>
 
