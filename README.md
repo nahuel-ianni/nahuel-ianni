@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Inwardly, we ought to be different in all respects, but our exterior should conform to society."_  
+> _"Whatever happens at all happens as it should; you will find this true, if you watch narrowly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-26 09:28:02 UTC*</sub>
+<sub>*Last update: 2025-08-26 18:12:23 UTC*</sub>
 
