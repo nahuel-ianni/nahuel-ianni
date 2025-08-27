@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever happens at all happens as it should; you will find this true, if you watch narrowly."_  
+> _"The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but  we have been a long time on the way."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-26 18:12:23 UTC*</sub>
+<sub>*Last update: 2025-08-27 09:26:25 UTC*</sub>
 
