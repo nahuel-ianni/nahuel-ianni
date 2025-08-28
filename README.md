@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Never praise or blame people on common grounds; look to their judgements exclusively. Because that is the determining factor, which makes everyone's actions either good or bad."_  
+> _"First learn the meaning of what you say, and then speak."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-08-28 09:26:27 UTC*</sub>
+<sub>*Last update: 2025-08-28 18:12:42 UTC*</sub>
 
