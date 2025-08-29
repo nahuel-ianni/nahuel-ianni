@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"First learn the meaning of what you say, and then speak."_  
+> _"When Zeno received news of a shipwreck and heard that all his luggage had been sunk he said, 'Fortune bids me to be a less encumbered philosopher."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-28 18:12:42 UTC*</sub>
+<sub>*Last update: 2025-08-29 09:26:35 UTC*</sub>
 
