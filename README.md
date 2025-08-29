@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When Zeno received news of a shipwreck and heard that all his luggage had been sunk he said, 'Fortune bids me to be a less encumbered philosopher."_  
+> _"But death and life, success and failure, pain and pleasure, wealth and poverty, all these happen to good and bad alike, and they are neither noble or shameful—and hence neither good nor bad."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-08-29 09:26:35 UTC*</sub>
+<sub>*Last update: 2025-08-29 18:12:25 UTC*</sub>
 
