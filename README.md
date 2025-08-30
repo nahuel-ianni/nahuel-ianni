@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"But death and life, success and failure, pain and pleasure, wealth and poverty, all these happen to good and bad alike, and they are neither noble or shameful—and hence neither good nor bad."_  
+> _"Virtue is according to nature; vice is opposed to it and hostile."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-29 18:12:25 UTC*</sub>
+<sub>*Last update: 2025-08-30 09:22:13 UTC*</sub>
 
