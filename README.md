@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Tell yourself what you want to be, then act your part accordingly."_  
+> _"O how many noble deeds of women are lost in obscurity!"_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-08-31 09:21:59 UTC*</sub>
+<sub>*Last update: 2025-08-31 18:10:33 UTC*</sub>
 
