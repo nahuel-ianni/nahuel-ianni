@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Strength and honor."_  
+> _"Tell yourself what you want to be, then act your part accordingly."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-08-30 18:10:31 UTC*</sub>
+<sub>*Last update: 2025-08-31 09:21:59 UTC*</sub>
 
