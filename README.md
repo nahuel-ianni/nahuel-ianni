@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Practice even what seems impossible."_  
+> _"The greatest obstacle to living is expectancy, which hangs upon tomorrow and loses today."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-02 09:26:55 UTC*</sub>
+<sub>*Last update: 2025-09-02 18:10:45 UTC*</sub>
 
