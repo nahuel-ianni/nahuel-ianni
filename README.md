@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a question whether he died by his own hand; for he fell from a sudden wound received in his groin, some doubting whether his death was voluntary, no one, whether it was timely."_  
+> _"Practice even what seems impossible."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-01 18:12:15 UTC*</sub>
+<sub>*Last update: 2025-09-02 09:26:55 UTC*</sub>
 
