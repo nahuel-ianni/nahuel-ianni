@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The greatest obstacle to living is expectancy, which hangs upon tomorrow and loses today."_  
+> _"It takes the whole of life to learn how to live, and--what will perhaps make you wonder more--it takes the whole of life to learn how to die."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-02 18:10:45 UTC*</sub>
+<sub>*Last update: 2025-09-03 09:25:00 UTC*</sub>
 
