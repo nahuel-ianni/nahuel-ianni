@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and--what will perhaps make you wonder more--it takes the whole of life to learn how to die."_  
+> _"You should, I need hardly say, live in such a way that there is nothing which you could not as easily tell your enemy as keep to yourself."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-03 09:25:00 UTC*</sub>
+<sub>*Last update: 2025-09-03 18:12:16 UTC*</sub>
 
