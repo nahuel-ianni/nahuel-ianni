@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _""No one," he says, "leaves this world in a different manner from one who has just been born." That is not true; for we are worse when we die than when we were born; but it is our fault, and not that of Nature."_  
+> _"Timendi causa est nescire -  Ignorance is the cause of fear."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-04 18:12:00 UTC*</sub>
+<sub>*Last update: 2025-09-05 09:25:51 UTC*</sub>
 
