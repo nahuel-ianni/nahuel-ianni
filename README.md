@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How silly then to imagine that the human mind, which is formed of the same elements as divine beings, objects to movement and change of abode, while the divine nature finds delight and even self-preservation in continual and very rapid change."_  
+> _"If you have assumed any character beyond your strength, you have both demeaned yourself ill in that and quitted one which you might have supported."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-09-06 18:10:05 UTC*</sub>
+<sub>*Last update: 2025-09-07 09:21:11 UTC*</sub>
 
