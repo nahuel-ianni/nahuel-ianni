@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If you have assumed any character beyond your strength, you have both demeaned yourself ill in that and quitted one which you might have supported."_  
+> _"Thou must be like a promontory of the sea, against which though the waves beat continually, yet it both itself stands, and about it are those swelling waves stilled and quieted."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-07 09:21:11 UTC*</sub>
+<sub>*Last update: 2025-09-07 18:10:14 UTC*</sub>
 
