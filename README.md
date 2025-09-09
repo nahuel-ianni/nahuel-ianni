@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We shrink from change; yet is there anything that can come into being without it?"_  
+> _"In protecting their wealth men are tight-fisted, but when it comes to the matter of time, in the case of the one thing in which it is wise to be parsimonious, they are actually generous to a fault."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-08 18:13:24 UTC*</sub>
+<sub>*Last update: 2025-09-09 09:27:08 UTC*</sub>
 
