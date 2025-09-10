@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The best compromise between love and good sense is both to feel longing and to conquer it."_  
+> _"BEGIN the morning by saying to thyself, I shall meet with the busy-body, the ungrateful, arrogant, deceitful, envious, unsocial."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-10 09:25:16 UTC*</sub>
+<sub>*Last update: 2025-09-10 18:12:33 UTC*</sub>
 
