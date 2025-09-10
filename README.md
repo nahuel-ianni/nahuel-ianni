@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Virtue is according to nature; vice is opposed to it and hostile."_  
+> _"The best compromise between love and good sense is both to feel longing and to conquer it."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-09 18:11:14 UTC*</sub>
+<sub>*Last update: 2025-09-10 09:25:16 UTC*</sub>
 
