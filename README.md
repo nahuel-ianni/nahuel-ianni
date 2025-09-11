@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"But death and life, success and failure, pain and pleasure, wealth and poverty, all these happen to good and bad alike, and they are neither noble or shameful—and hence neither good nor bad."_  
+> _"Fate leads the willing and drags along the reluctant."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-11 09:25:13 UTC*</sub>
+<sub>*Last update: 2025-09-11 18:10:38 UTC*</sub>
 
