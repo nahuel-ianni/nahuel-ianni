@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Fate leads the willing and drags along the reluctant."_  
+> _"Your life is what your thoughts make it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-11 18:10:38 UTC*</sub>
+<sub>*Last update: 2025-09-12 09:24:43 UTC*</sub>
 
