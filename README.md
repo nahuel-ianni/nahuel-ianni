@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Your life is what your thoughts make it."_  
+> _"How rotten and spurious is the man who says: “I have decided to be straightforward with you.”"_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-12 09:24:43 UTC*</sub>
+<sub>*Last update: 2025-09-12 18:11:23 UTC*</sub>
 
