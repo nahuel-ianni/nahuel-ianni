@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How rotten and spurious is the man who says: “I have decided to be straightforward with you.”"_  
+> _"Everyone prefers belief to the exercise of judgement."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-12 18:11:23 UTC*</sub>
+<sub>*Last update: 2025-09-13 09:21:00 UTC*</sub>
 
