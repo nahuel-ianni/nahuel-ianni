@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Everyone prefers belief to the exercise of judgement."_  
+> _"Here is a rule to remember in future, when anything tempts you to feel bitter: not "This is misfortune," but "To bear this worthily is good fortune.""_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-13 09:21:00 UTC*</sub>
+<sub>*Last update: 2025-09-13 18:09:52 UTC*</sub>
 
