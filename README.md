@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Here is a rule to remember in future, when anything tempts you to feel bitter: not "This is misfortune," but "To bear this worthily is good fortune.""_  
+> _"What progress, you ask, have I made? I have begun to be a friend to myself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-13 18:09:52 UTC*</sub>
+<sub>*Last update: 2025-09-14 09:21:17 UTC*</sub>
 
