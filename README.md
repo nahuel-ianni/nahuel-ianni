@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Asked, Who is the rich man? Epictetus replied, He who is content."_  
+> _"To pursue the unattainable is insanity, yet the thoughtless can never refrain from doing so."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-16 09:26:31 UTC*</sub>
+<sub>*Last update: 2025-09-16 18:12:51 UTC*</sub>
 
