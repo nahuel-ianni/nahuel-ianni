@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We abandon nature and surrender to the mob – who are never good advisers in anything, and in this respect as in all others are most inconsistent."_  
+> _"Asked, Who is the rich man? Epictetus replied, He who is content."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-09-15 18:12:36 UTC*</sub>
+<sub>*Last update: 2025-09-16 09:26:31 UTC*</sub>
 
