@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No one keeps himself waiting; and yet the greatest cure for anger is to wait, so that the initial passion it engenders may die down, and the fog that shrouds the mind may subside, or become less thick."_  
+> _"Soon you'll be ashes or bones. A mere name at most - and even that is just a sound, an echo. The things we want in life are empty, stale, trivial."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-17 09:25:35 UTC*</sub>
+<sub>*Last update: 2025-09-17 18:12:25 UTC*</sub>
 
