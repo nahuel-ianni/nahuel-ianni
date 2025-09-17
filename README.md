@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To pursue the unattainable is insanity, yet the thoughtless can never refrain from doing so."_  
+> _"No one keeps himself waiting; and yet the greatest cure for anger is to wait, so that the initial passion it engenders may die down, and the fog that shrouds the mind may subside, or become less thick."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-16 18:12:51 UTC*</sub>
+<sub>*Last update: 2025-09-17 09:25:35 UTC*</sub>
 
