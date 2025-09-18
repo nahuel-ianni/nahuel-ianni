@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nothing that goes on in anyone else’s mind can harm you."_  
+> _"Ubicumque ex aequo ad caelum erigitur acies, paribus intervallis omnia divina ab omnibus humanis distant - From whatever point on the earth's surface you look up to heaven the same distance lies between the realms of gods and men."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-18 09:25:38 UTC*</sub>
+<sub>*Last update: 2025-09-18 18:13:05 UTC*</sub>
 
