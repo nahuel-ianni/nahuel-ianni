@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Soon you'll be ashes or bones. A mere name at most - and even that is just a sound, an echo. The things we want in life are empty, stale, trivial."_  
+> _"Nothing that goes on in anyone else’s mind can harm you."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-17 18:12:25 UTC*</sub>
+<sub>*Last update: 2025-09-18 09:25:38 UTC*</sub>
 
