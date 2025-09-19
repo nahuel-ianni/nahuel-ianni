@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Envy of other people shows how they are unhappy. Their continual attention to others behavior shows how they are boring."_  
+> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-19 09:26:05 UTC*</sub>
+<sub>*Last update: 2025-09-19 18:12:27 UTC*</sub>
 
