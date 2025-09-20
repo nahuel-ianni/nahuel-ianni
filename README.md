@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
+> _"How can you wonder your travels do you no good, when you carry yourself around with you? You are saddled with the very thing that drove you away."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-19 18:12:27 UTC*</sub>
+<sub>*Last update: 2025-09-20 09:22:35 UTC*</sub>
 
