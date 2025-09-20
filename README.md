@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How can you wonder your travels do you no good, when you carry yourself around with you? You are saddled with the very thing that drove you away."_  
+> _"Never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-20 09:22:35 UTC*</sub>
+<sub>*Last update: 2025-09-20 18:10:02 UTC*</sub>
 
