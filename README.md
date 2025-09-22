@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How soon will time cover all things."_  
+> _"Would you rather be poor and sated, or rich and hungry? Prosperity is not only greedy, but it also lies exposed to the greed of others. And as long as nothing satisfies you, you yourself cannot satisfy others."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-21 18:10:43 UTC*</sub>
+<sub>*Last update: 2025-09-22 09:29:34 UTC*</sub>
 
