@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So long as you live, keep learning how to live."_  
+> _"Who scorns his own life is lord of yours."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-22 18:12:45 UTC*</sub>
+<sub>*Last update: 2025-09-23 09:26:52 UTC*</sub>
 
