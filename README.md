@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Who scorns his own life is lord of yours."_  
+> _"Nature hath given men one tongue but two ears, that we may hear from others twice as much as we speak."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-09-23 09:26:52 UTC*</sub>
+<sub>*Last update: 2025-09-23 18:13:36 UTC*</sub>
 
