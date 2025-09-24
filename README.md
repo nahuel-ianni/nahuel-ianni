@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Hurry up and live."_  
+> _"Life is opinion."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-24 09:26:15 UTC*</sub>
+<sub>*Last update: 2025-09-24 18:13:23 UTC*</sub>
 
