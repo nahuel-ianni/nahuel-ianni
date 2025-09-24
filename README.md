@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nature hath given men one tongue but two ears, that we may hear from others twice as much as we speak."_  
+> _"Hurry up and live."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-23 18:13:36 UTC*</sub>
+<sub>*Last update: 2025-09-24 09:26:15 UTC*</sub>
 
