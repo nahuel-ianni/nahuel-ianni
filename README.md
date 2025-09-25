@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life is opinion."_  
+> _"Providence which could be spoken of, almost according to choice or context, under a variety of names or descriptions including the divine reason, creative reason, nature."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-24 18:13:23 UTC*</sub>
+<sub>*Last update: 2025-09-25 09:26:27 UTC*</sub>
 
