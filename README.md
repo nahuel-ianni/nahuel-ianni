@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For a man cannot lose either the past or the future: for what a man has not, how can any one take this from him?"_  
+> _"Whenever I wish to enjoy the quips of a clown, I am not compelled to hunt far; I can laugh at myself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-26 09:26:40 UTC*</sub>
+<sub>*Last update: 2025-09-26 18:11:05 UTC*</sub>
 
