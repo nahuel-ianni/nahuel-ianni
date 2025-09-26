@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Reflect how pleasant it is to demand nothing, how noble it is to be contented and not to be dependent upon Fortune."_  
+> _"For a man cannot lose either the past or the future: for what a man has not, how can any one take this from him?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-25 18:13:46 UTC*</sub>
+<sub>*Last update: 2025-09-26 09:26:40 UTC*</sub>
 
