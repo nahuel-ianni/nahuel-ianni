@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
+> _"The soul becomes dyed with the colour of its thoughts."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-27 09:20:59 UTC*</sub>
+<sub>*Last update: 2025-09-27 18:10:34 UTC*</sub>
 
