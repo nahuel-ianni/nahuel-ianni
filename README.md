@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whenever I wish to enjoy the quips of a clown, I am not compelled to hunt far; I can laugh at myself."_  
+> _"It takes the whole of life to learn how to live, and—what will perhaps make you wonder more—it takes the whole of life to learn how to die."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-26 18:11:05 UTC*</sub>
+<sub>*Last update: 2025-09-27 09:20:59 UTC*</sub>
 
