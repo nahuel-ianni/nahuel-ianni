@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Finally, it is generally agreed that no activity can be successfully pursued by an individual who is preoccupied."_  
+> _"If someone speaks badly of you, do not defend yourself against the accusations, but reply; "you obviously don't know about my other vices, otherwise you would have mentioned these as well.""_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-09-28 09:21:20 UTC*</sub>
+<sub>*Last update: 2025-09-28 18:10:45 UTC*</sub>
 
