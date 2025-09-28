@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The soul becomes dyed with the colour of its thoughts."_  
+> _"Finally, it is generally agreed that no activity can be successfully pursued by an individual who is preoccupied."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-27 18:10:34 UTC*</sub>
+<sub>*Last update: 2025-09-28 09:21:20 UTC*</sub>
 
