@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If someone speaks badly of you, do not defend yourself against the accusations, but reply; "you obviously don't know about my other vices, otherwise you would have mentioned these as well.""_  
+> _"It is more civilized to make fun of life than to bewail it."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-09-28 18:10:45 UTC*</sub>
+<sub>*Last update: 2025-09-29 09:29:14 UTC*</sub>
 
