@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Although the sum and substance of the happy life is unalloyed freedom from care, and though the secret of such freedom is unshaken confidence... men gather together that which causes worry."_  
+> _"It is not what you endure that matters, but how you endure it."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-09-29 18:14:06 UTC*</sub>
+<sub>*Last update: 2025-09-30 09:26:21 UTC*</sub>
 
