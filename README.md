@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is not what you endure that matters, but how you endure it."_  
+> _"Accept the things to which life binds you, and love the people with whom life brings you together, but do so with all your heart."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-09-30 09:26:21 UTC*</sub>
+<sub>*Last update: 2025-09-30 18:13:02 UTC*</sub>
 
