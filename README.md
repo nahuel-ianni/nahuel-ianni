@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It has been ordained that there be summer and winter, abundance and dearth, virtue and vice, and all such opposites for the harmony of the whole, and (Zeus) has given each of us a body, property, and companions."_  
+> _"For it is not death or pain that is to be feared, but the fear of pain or death."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-10-01 09:27:05 UTC*</sub>
+<sub>*Last update: 2025-10-01 18:13:39 UTC*</sub>
 
