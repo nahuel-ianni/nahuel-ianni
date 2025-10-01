@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Accept the things to which life binds you, and love the people with whom life brings you together, but do so with all your heart."_  
+> _"It has been ordained that there be summer and winter, abundance and dearth, virtue and vice, and all such opposites for the harmony of the whole, and (Zeus) has given each of us a body, property, and companions."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-09-30 18:13:02 UTC*</sub>
+<sub>*Last update: 2025-10-01 09:27:05 UTC*</sub>
 
