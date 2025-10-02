@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Could anything be more stupid than to praise a person for something that is not his? Or more crazy than admiring things which in a single moment can be transferred to another?"_  
+> _"Because a thing seems difficult for you, do not think it impossible for anyone to accomplish."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-02 09:24:51 UTC*</sub>
+<sub>*Last update: 2025-10-02 18:13:05 UTC*</sub>
 
