@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Because a thing seems difficult for you, do not think it impossible for anyone to accomplish."_  
+> _"There are more things, Lucilius, likely to frighten us than there are to crush us; we suffer more often in imagination than in reality."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-02 18:13:05 UTC*</sub>
+<sub>*Last update: 2025-10-03 09:24:13 UTC*</sub>
 
