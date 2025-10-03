@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There are more things, Lucilius, likely to frighten us than there are to crush us; we suffer more often in imagination than in reality."_  
+> _"Men are not afraid of things, but of how they view them."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-03 09:24:13 UTC*</sub>
+<sub>*Last update: 2025-10-03 18:12:32 UTC*</sub>
 
