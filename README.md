@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Never say of anything that I've lost it, only that Ive given it back."_  
+> _"Your mind will take on the character of your most frequent thoughts: souls are dyed by thoughts."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-04 09:21:21 UTC*</sub>
+<sub>*Last update: 2025-10-04 18:11:04 UTC*</sub>
 
