@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Your mind will take on the character of your most frequent thoughts: souls are dyed by thoughts."_  
+> _"Enjoy present pleasures in such a way as not to injure future ones."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-04 18:11:04 UTC*</sub>
+<sub>*Last update: 2025-10-05 09:20:53 UTC*</sub>
 
