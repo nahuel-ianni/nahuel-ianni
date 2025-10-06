@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ignorance is no cure for suffering."_  
+> _"The universe is change; our life is what our thoughts make it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-05 18:11:03 UTC*</sub>
+<sub>*Last update: 2025-10-06 09:29:00 UTC*</sub>
 
