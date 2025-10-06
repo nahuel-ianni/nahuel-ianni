@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The universe is change; our life is what our thoughts make it."_  
+> _"For many men, the acquisition of wealth does not end their troubles, it only changes them."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-06 09:29:00 UTC*</sub>
+<sub>*Last update: 2025-10-06 18:13:23 UTC*</sub>
 
