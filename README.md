@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Adapt yourself to the life you have been given; and truly love the people with whom destiny has surrounded you."_  
+> _"It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-07 09:26:24 UTC*</sub>
+<sub>*Last update: 2025-10-07 18:13:38 UTC*</sub>
 
