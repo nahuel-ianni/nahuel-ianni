@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For many men, the acquisition of wealth does not end their troubles, it only changes them."_  
+> _"Adapt yourself to the life you have been given; and truly love the people with whom destiny has surrounded you."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-06 18:13:23 UTC*</sub>
+<sub>*Last update: 2025-10-07 09:26:24 UTC*</sub>
 
