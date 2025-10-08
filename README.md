@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own."_  
+> _"The time of the actual enjoyment is short and swift, and made much shorter through their own fault. For they dash from one pleasure to another and cannot stay steady in one desire."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-07 18:13:38 UTC*</sub>
+<sub>*Last update: 2025-10-08 09:27:05 UTC*</sub>
 
