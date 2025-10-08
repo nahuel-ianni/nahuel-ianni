@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The time of the actual enjoyment is short and swift, and made much shorter through their own fault. For they dash from one pleasure to another and cannot stay steady in one desire."_  
+> _"Perfection of character is this: to live each day as if it were your last, without frenzy, without apathy, without pretence."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-08 09:27:05 UTC*</sub>
+<sub>*Last update: 2025-10-08 18:13:41 UTC*</sub>
 
