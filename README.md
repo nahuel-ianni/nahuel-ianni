@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"HE WHO ACTS UNJUSTLY ACTS IMPIOUSLY."_  
+> _"Only time can heal what reason cannot."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-10 09:26:43 UTC*</sub>
+<sub>*Last update: 2025-10-10 18:13:37 UTC*</sub>
 
