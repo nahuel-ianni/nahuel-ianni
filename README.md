@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The fool, with all his other faults, has this also, he is always getting ready to live."_  
+> _"If within the power of another, whom do you blame—atoms or gods? To do either is folly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-11 09:21:41 UTC*</sub>
+<sub>*Last update: 2025-10-11 18:10:41 UTC*</sub>
 
