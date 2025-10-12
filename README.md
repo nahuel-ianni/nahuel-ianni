@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nature hath given men one tongue but two ears, that we may hear from others twice as much as we speak."_  
+> _"When a mind is impressionable and has none too firm a hold on what is right, it must be rescued from the crowd: it is so easy for it to go over to the majority."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-12 09:21:59 UTC*</sub>
+<sub>*Last update: 2025-10-12 18:11:25 UTC*</sub>
 
