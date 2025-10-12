@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If within the power of another, whom do you blame—atoms or gods? To do either is folly."_  
+> _"Nature hath given men one tongue but two ears, that we may hear from others twice as much as we speak."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-11 18:10:41 UTC*</sub>
+<sub>*Last update: 2025-10-12 09:21:59 UTC*</sub>
 
