@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When a mind is impressionable and has none too firm a hold on what is right, it must be rescued from the crowd: it is so easy for it to go over to the majority."_  
+> _"A wrongdoer is often a man who has left something undone, not always one who has done something."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-12 18:11:25 UTC*</sub>
+<sub>*Last update: 2025-10-13 09:29:43 UTC*</sub>
 
