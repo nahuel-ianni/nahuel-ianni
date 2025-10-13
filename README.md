@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A wrongdoer is often a man who has left something undone, not always one who has done something."_  
+> _"If a person gave your body to any stranger he met on his way, you would certainly be angry. And do you feel no shame in handing over your own mind to be confused and mystified by anyone who happens to verbally attack you?"_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-13 09:29:43 UTC*</sub>
+<sub>*Last update: 2025-10-13 18:13:09 UTC*</sub>
 
