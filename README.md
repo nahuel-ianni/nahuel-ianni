@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This then remains: Remember to retire into this little territory of thy own, and, above all, do not distract or strain thyself, but be free, at look and things as a man, as a human being, as a citizen, as a mortal."_  
+> _"Freedom is not procured by a full enjoyment of what is desired, but by controlling the desire."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-15 09:27:20 UTC*</sub>
+<sub>*Last update: 2025-10-15 18:14:13 UTC*</sub>
 
