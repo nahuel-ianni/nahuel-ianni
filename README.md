@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Resistance is vain in any case; it only leads to useless struggle while inviting grief and sorrow."_  
+> _"It is a shame when the soul is first to give way in this life, and the body does not give way."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-16 09:27:59 UTC*</sub>
+<sub>*Last update: 2025-10-16 18:13:27 UTC*</sub>
 
