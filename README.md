@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Freedom is not procured by a full enjoyment of what is desired, but by controlling the desire."_  
+> _"Resistance is vain in any case; it only leads to useless struggle while inviting grief and sorrow."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-10-15 18:14:13 UTC*</sub>
+<sub>*Last update: 2025-10-16 09:27:59 UTC*</sub>
 
