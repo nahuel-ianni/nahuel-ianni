@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a shame when the soul is first to give way in this life, and the body does not give way."_  
+> _"It's not that we have little time, but more that we waste a good deal of it."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-16 18:13:27 UTC*</sub>
+<sub>*Last update: 2025-10-17 09:26:50 UTC*</sub>
 
