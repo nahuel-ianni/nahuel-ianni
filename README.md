@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It's not that we have little time, but more that we waste a good deal of it."_  
+> _"I was once a fortunate man but at some point fortune abandoned me. But true good fortune is what you make for yourself. Good fortune: good character, good intentions, and good actions."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-17 09:26:50 UTC*</sub>
+<sub>*Last update: 2025-10-17 18:10:49 UTC*</sub>
 
