@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Most men ebb and flow in wretchedness between the fear of death and the hardships of life; they are unwilling to live, and yet they do not know how to die. For this reason, make life as a whole agreeable to yourself by banishing all worry about it."_  
+> _"Because a thing seems difficult for you, do not think it impossible for anyone to accomplish."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-18 09:22:41 UTC*</sub>
+<sub>*Last update: 2025-10-18 18:11:08 UTC*</sub>
 
