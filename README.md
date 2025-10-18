@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I was once a fortunate man but at some point fortune abandoned me. But true good fortune is what you make for yourself. Good fortune: good character, good intentions, and good actions."_  
+> _"Most men ebb and flow in wretchedness between the fear of death and the hardships of life; they are unwilling to live, and yet they do not know how to die. For this reason, make life as a whole agreeable to yourself by banishing all worry about it."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-17 18:10:49 UTC*</sub>
+<sub>*Last update: 2025-10-18 09:22:41 UTC*</sub>
 
