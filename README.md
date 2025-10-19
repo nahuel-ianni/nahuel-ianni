@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Because a thing seems difficult for you, do not think it impossible for anyone to accomplish."_  
+> _"The greatest obstacle to living is expectancy, which hangs upon tomorrow and loses today. You are arranging what is in Fortune's control and abandoning what lies in yours."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-18 18:11:08 UTC*</sub>
+<sub>*Last update: 2025-10-19 09:22:11 UTC*</sub>
 
