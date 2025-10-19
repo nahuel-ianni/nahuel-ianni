@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The greatest obstacle to living is expectancy, which hangs upon tomorrow and loses today. You are arranging what is in Fortune's control and abandoning what lies in yours."_  
+> _"Objective judgment, now, at this very moment. Unselfish action, now, at this very moment. Willing acceptance—now, at this very moment—of all external events. That’s all you need."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-19 09:22:11 UTC*</sub>
+<sub>*Last update: 2025-10-19 18:11:28 UTC*</sub>
 
