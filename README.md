@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Let the god that is within you be the champion of the being you are."_  
+> _"The ruler must be a philosopher as well as a king; and he must govern unwillingly, because he loves philosophy better than dominion."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-20 09:29:09 UTC*</sub>
+<sub>*Last update: 2025-10-20 18:14:09 UTC*</sub>
 
