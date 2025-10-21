@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The ruler must be a philosopher as well as a king; and he must govern unwillingly, because he loves philosophy better than dominion."_  
+> _"It takes the whole of life to learn how to live, and--what will perhaps make you wonder more--it takes the whole of life to learn how to die."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-20 18:14:09 UTC*</sub>
+<sub>*Last update: 2025-10-21 09:28:17 UTC*</sub>
 
