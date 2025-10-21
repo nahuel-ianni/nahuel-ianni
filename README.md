@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It takes the whole of life to learn how to live, and--what will perhaps make you wonder more--it takes the whole of life to learn how to die."_  
+> _"When a youth was giving himself airs in the Theatre and saying, 'I am wise, for I have conversed with many wise men,' Epictetus replied, 'I too have conversed with many rich men, yet I am not rich!’."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-21 09:28:17 UTC*</sub>
+<sub>*Last update: 2025-10-21 18:12:17 UTC*</sub>
 
