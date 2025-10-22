@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When a youth was giving himself airs in the Theatre and saying, 'I am wise, for I have conversed with many wise men,' Epictetus replied, 'I too have conversed with many rich men, yet I am not rich!’."_  
+> _"Remember how long thou hast already put off these things, and how often a certain day and hour as it were, having been set unto thee by the gods, thou hast neglected it."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-21 18:12:17 UTC*</sub>
+<sub>*Last update: 2025-10-22 09:29:21 UTC*</sub>
 
