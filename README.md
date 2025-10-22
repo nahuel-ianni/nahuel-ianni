@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember how long thou hast already put off these things, and how often a certain day and hour as it were, having been set unto thee by the gods, thou hast neglected it."_  
+> _"Truth often harms the one who digs it up."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-22 09:29:21 UTC*</sub>
+<sub>*Last update: 2025-10-22 18:14:50 UTC*</sub>
 
