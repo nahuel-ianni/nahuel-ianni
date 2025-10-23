@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Truth often harms the one who digs it up."_  
+> _"An uninstructed person will lay the fault of his own bad condition upon others. Someone just starting instruction will lay the fault on himself. Some who is perfectly instructed will place blame neither on others nor on himself."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-22 18:14:50 UTC*</sub>
+<sub>*Last update: 2025-10-23 09:27:55 UTC*</sub>
 
