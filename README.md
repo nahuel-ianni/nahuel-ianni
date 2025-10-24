@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is of course better to know useless things than to know nothing."_  
+> _"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-23 18:13:44 UTC*</sub>
+<sub>*Last update: 2025-10-24 09:27:20 UTC*</sub>
 
