@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Poverty will keep for you your true and tried friends; you will be rid of the men who were not seeking you for yourself, but for something which you have."_  
+> _"So remember this principle when something threatens to cause you pain: the thing itself was no misfortune at all; to endure it and prevail is great good fortune."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-25 09:22:20 UTC*</sub>
+<sub>*Last update: 2025-10-25 18:11:35 UTC*</sub>
 
