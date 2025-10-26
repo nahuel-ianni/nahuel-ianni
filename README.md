@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So remember this principle when something threatens to cause you pain: the thing itself was no misfortune at all; to endure it and prevail is great good fortune."_  
+> _"He who laughs at himself never runs out of things to laugh at."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-10-25 18:11:35 UTC*</sub>
+<sub>*Last update: 2025-10-26 09:22:12 UTC*</sub>
 
