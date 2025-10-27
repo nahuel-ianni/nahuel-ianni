@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Events do not just happen, but arrive by appointment."_  
+> _"For what purpose, then, do I make a man my friend? In order to have someone for whom I may die, whom I may follow into exile, against whose death I may stake my own life, and pay the pledge, too."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-10-26 18:11:46 UTC*</sub>
+<sub>*Last update: 2025-10-27 09:30:38 UTC*</sub>
 
