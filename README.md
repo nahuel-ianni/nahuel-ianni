@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For what purpose, then, do I make a man my friend? In order to have someone for whom I may die, whom I may follow into exile, against whose death I may stake my own life, and pay the pledge, too."_  
+> _"The greatest loss of time is delay and expectation, which depend upon the future. We let go the present, which we have in our power, and look forward to that which depends upon chance, and so relinquish a certainty for an uncertainty."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-10-27 09:30:38 UTC*</sub>
+<sub>*Last update: 2025-10-27 18:14:00 UTC*</sub>
 
