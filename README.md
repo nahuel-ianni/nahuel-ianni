@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Everywhere the people are of mixed and imported stock. One group has followed another: one longed for what another scorned; one was driven out from where he had expelled others. So fate has decreed that nothing maintains the same condition forever."_  
+> _"Observe always that everything is the result of change, and get used to thinking that there is nothing Nature loves so well as to change existing forms and make new ones like them."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-28 09:27:33 UTC*</sub>
+<sub>*Last update: 2025-10-28 18:14:12 UTC*</sub>
 
