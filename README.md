@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The greatest loss of time is delay and expectation, which depend upon the future. We let go the present, which we have in our power, and look forward to that which depends upon chance, and so relinquish a certainty for an uncertainty."_  
+> _"Everywhere the people are of mixed and imported stock. One group has followed another: one longed for what another scorned; one was driven out from where he had expelled others. So fate has decreed that nothing maintains the same condition forever."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-10-27 18:14:00 UTC*</sub>
+<sub>*Last update: 2025-10-28 09:27:33 UTC*</sub>
 
