@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Count your years, and you will be ashamed to desire and pursue the same things you desired in your boyhood days. ."_  
+> _"Whatever is in any way beautiful hath its source of beauty in itself, and is complete in itself; praise forms no part of it. So it is none the worse nor the better for being praised."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-10-29 18:14:14 UTC*</sub>
+<sub>*Last update: 2025-10-30 09:28:04 UTC*</sub>
 
