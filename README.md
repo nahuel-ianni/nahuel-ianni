@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Plague on it! what madness this is, to punish one's self because one is unfortunate, and not to lessen, but to increase one's ills!"_  
+> _"Disgraceful: for the soul to give up when the body is still going strong."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-01 09:23:27 UTC*</sub>
+<sub>*Last update: 2025-11-01 18:11:06 UTC*</sub>
 
