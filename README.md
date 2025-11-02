@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Disgraceful: for the soul to give up when the body is still going strong."_  
+> _"A person teaching and a person learning,' he said, 'should have the same end in view: the improvement of the latter."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-01 18:11:06 UTC*</sub>
+<sub>*Last update: 2025-11-02 09:22:41 UTC*</sub>
 
