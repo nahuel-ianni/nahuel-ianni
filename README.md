@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A person teaching and a person learning,' he said, 'should have the same end in view: the improvement of the latter."_  
+> _"You see, then, that it is necessary for you to become a student, that creature which every one laughs at, if you really desire to make an examination of your judgements. But this, as you are quite aware, is not the work of a single hour or day."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-02 09:22:41 UTC*</sub>
+<sub>*Last update: 2025-11-02 18:10:46 UTC*</sub>
 
