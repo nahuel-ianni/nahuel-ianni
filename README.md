@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Not the “not” but the “not yet.”"_  
+> _"Kingship: to earn a bad reputation by good deeds."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-03 18:13:20 UTC*</sub>
+<sub>*Last update: 2025-11-04 09:29:21 UTC*</sub>
 
