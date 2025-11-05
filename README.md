@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Reject your sense of injury, and the injury itself disappears."_  
+> _"He who has seen the present has seen everything, that which happened in the most distant past and that which will happen in the future."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-05 09:29:11 UTC*</sub>
+<sub>*Last update: 2025-11-05 18:13:36 UTC*</sub>
 
