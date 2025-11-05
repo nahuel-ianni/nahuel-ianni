@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever anyone does or says, I must be emerald and keep my colour."_  
+> _"Reject your sense of injury, and the injury itself disappears."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-04 18:13:49 UTC*</sub>
+<sub>*Last update: 2025-11-05 09:29:11 UTC*</sub>
 
