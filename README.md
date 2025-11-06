@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He who has seen the present has seen everything, that which happened in the most distant past and that which will happen in the future."_  
+> _"Furthermore, if you will pay close heed to the problem, you will find that the largest portion of our life passes while we are doing ill, a goodly share while we are doing nothing, and the whole while we are doing that which is not to the purpose."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-05 18:13:36 UTC*</sub>
+<sub>*Last update: 2025-11-06 09:28:59 UTC*</sub>
 
