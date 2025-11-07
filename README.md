@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Don't seek to have events happen as you wish, but wish them to happen as they do happen, and all will be well with you."_  
+> _"Is you naturally entitled, then, to a good father? No, only to a father."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2025-11-07 09:26:38 UTC*</sub>
+<sub>*Last update: 2025-11-07 18:13:24 UTC*</sub>
 
