@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do you ask me what you should regard as especially to be avoided? I say, crowds; for as yet you cannot trust yourself to them with safety."_  
+> _"Don't seek to have events happen as you wish, but wish them to happen as they do happen, and all will be well with you."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-06 18:14:20 UTC*</sub>
+<sub>*Last update: 2025-11-07 09:26:38 UTC*</sub>
 
