@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We perish because we follow other men's examples: we should be cured of this if we were to disengage ourselves from the herd."_  
+> _"A sword never kills anybody; it is a tool in the killer's hand."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-11-08 09:23:20 UTC*</sub>
+<sub>*Last update: 2025-11-08 18:11:41 UTC*</sub>
 
