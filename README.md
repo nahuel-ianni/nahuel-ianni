@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Is you naturally entitled, then, to a good father? No, only to a father."_  
+> _"We perish because we follow other men's examples: we should be cured of this if we were to disengage ourselves from the herd."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-07 18:13:24 UTC*</sub>
+<sub>*Last update: 2025-11-08 09:23:20 UTC*</sub>
 
