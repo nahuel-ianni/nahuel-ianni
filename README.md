@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Who are those people by whom you wish to be admired? Are they not these whom you are in the habit of saying that they are mad? What then? Do you wish to be admired by the mad?"_  
+> _"No man has escaped paying the penalty for being born."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-09 09:22:46 UTC*</sub>
+<sub>*Last update: 2025-11-09 18:11:40 UTC*</sub>
 
