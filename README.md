@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A sword never kills anybody; it is a tool in the killer's hand."_  
+> _"Who are those people by whom you wish to be admired? Are they not these whom you are in the habit of saying that they are mad? What then? Do you wish to be admired by the mad?"_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-08 18:11:41 UTC*</sub>
+<sub>*Last update: 2025-11-09 09:22:46 UTC*</sub>
 
