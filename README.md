@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are all mere nuggets of incense on the one altar. Some burn down now , some later - there is no difference ."_  
+> _"Remember that our efforts are subject to circumstances; you weren’t aiming to do the impossible. —Aiming to do what, then? To try. And you succeeded. What you set out to do is accomplished."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-10 09:30:40 UTC*</sub>
+<sub>*Last update: 2025-11-10 18:13:55 UTC*</sub>
 
