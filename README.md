@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember that our efforts are subject to circumstances; you weren’t aiming to do the impossible. —Aiming to do what, then? To try. And you succeeded. What you set out to do is accomplished."_  
+> _"And to have learned how to accept favors from friends without losing your self-respect or appearing ungrateful."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-10 18:13:55 UTC*</sub>
+<sub>*Last update: 2025-11-11 09:28:54 UTC*</sub>
 
