@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Lay hold of today's task, and you will not need to depend so much upon to-morrow's."_  
+> _"The young character, which cannot hold fast to righteousness, must be rescued from the mob."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-11-12 09:28:44 UTC*</sub>
+<sub>*Last update: 2025-11-12 18:14:11 UTC*</sub>
 
