@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Since it is possible that thou mayest depart from life this very moment, regulate every act and thought accordingly."_  
+> _"Lay hold of today's task, and you will not need to depend so much upon to-morrow's."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-11 18:13:36 UTC*</sub>
+<sub>*Last update: 2025-11-12 09:28:44 UTC*</sub>
 
