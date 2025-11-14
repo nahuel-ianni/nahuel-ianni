@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No man has been shattered by the blows of Fortune unless he was first deceived by her favours."_  
+> _"Every portion of me will be reassigned as another portion of the world, and that in turn transformed into another. Ad infinitum."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-13 18:13:20 UTC*</sub>
+<sub>*Last update: 2025-11-14 09:28:07 UTC*</sub>
 
