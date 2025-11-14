@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Every portion of me will be reassigned as another portion of the world, and that in turn transformed into another. Ad infinitum."_  
+> _"Do the things external which fall upon thee distract thee? Give thyself time to learn something new and good, and cease to be whirled around."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-14 09:28:07 UTC*</sub>
+<sub>*Last update: 2025-11-14 18:13:37 UTC*</sub>
 
