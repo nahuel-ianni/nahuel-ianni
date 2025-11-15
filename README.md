@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do the things external which fall upon thee distract thee? Give thyself time to learn something new and good, and cease to be whirled around."_  
+> _"What is divine deserves our respect because it is good; what is human deserves our affection because it is like us."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-14 18:13:37 UTC*</sub>
+<sub>*Last update: 2025-11-15 09:23:34 UTC*</sub>
 
