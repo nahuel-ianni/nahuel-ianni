@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What is divine deserves our respect because it is good; what is human deserves our affection because it is like us."_  
+> _"A grey-haired wrinkled man has not necessarily lived long. More accurately, he has existed long."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-15 09:23:34 UTC*</sub>
+<sub>*Last update: 2025-11-15 18:11:44 UTC*</sub>
 
