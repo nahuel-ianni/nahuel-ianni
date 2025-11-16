@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A grey-haired wrinkled man has not necessarily lived long. More accurately, he has existed long."_  
+> _"Man, what are you talking about? Me in chains? You may fetter my leg but my will, not even Zeus himself can overpower."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-15 18:11:44 UTC*</sub>
+<sub>*Last update: 2025-11-16 09:24:41 UTC*</sub>
 
