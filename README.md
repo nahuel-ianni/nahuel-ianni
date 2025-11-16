@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Man, what are you talking about? Me in chains? You may fetter my leg but my will, not even Zeus himself can overpower."_  
+> _"Every new beginning comes from other beginning’s end."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-16 09:24:41 UTC*</sub>
+<sub>*Last update: 2025-11-16 18:11:53 UTC*</sub>
 
