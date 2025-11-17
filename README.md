@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Again, when my mind is lifted up by the greatness of its thoughts, it becomes ambitious for words and longs to match its higher inspiration with its language, and so produces a style that conforms to the impressiveness of the subject matter."_  
+> _"Look at the past—empire succeeding empire—and from that, extrapolate the future: the same thing. No escape from the rhythm of events. Which is why observing life for forty years is as good as a thousand. Would you really see anything new?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-17 09:31:56 UTC*</sub>
+<sub>*Last update: 2025-11-17 18:13:17 UTC*</sub>
 
