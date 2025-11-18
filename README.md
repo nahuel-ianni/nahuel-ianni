@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A man’s worth is no greater than the worth of his ambitions."_  
+> _"No one becomes a laughingstock who laughs at himself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-18 09:29:01 UTC*</sub>
+<sub>*Last update: 2025-11-18 18:14:26 UTC*</sub>
 
