@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Look at the past—empire succeeding empire—and from that, extrapolate the future: the same thing. No escape from the rhythm of events. Which is why observing life for forty years is as good as a thousand. Would you really see anything new?"_  
+> _"A man’s worth is no greater than the worth of his ambitions."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-17 18:13:17 UTC*</sub>
+<sub>*Last update: 2025-11-18 09:29:01 UTC*</sub>
 
