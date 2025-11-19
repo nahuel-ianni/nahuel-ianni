@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No one becomes a laughingstock who laughs at himself."_  
+> _"As they that long after figs in winter when they cannot be had; so are they that long after children, before they be granted them."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-18 18:14:26 UTC*</sub>
+<sub>*Last update: 2025-11-19 09:29:14 UTC*</sub>
 
