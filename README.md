@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You have power over your mind - not outside events. Realize this, and you will find strength. When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love."_  
+> _"Your mind will be like its habitual thoughts; for the soul becomes dyed with the colour of its thoughts."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-19 18:14:13 UTC*</sub>
+<sub>*Last update: 2025-11-20 09:27:48 UTC*</sub>
 
