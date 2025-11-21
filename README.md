@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Restrict yourself to choice and refusal; and exercise them carefully, with discipline and detachment."_  
+> _"No man has been shattered by the blows of Fortune unless he was first deceived by her favours."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-21 09:27:39 UTC*</sub>
+<sub>*Last update: 2025-11-21 18:14:12 UTC*</sub>
 
