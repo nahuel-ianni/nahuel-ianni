@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This will not be a gentle prescription for healing, but cautery and the knife. What shall I achieve? That a soul which has conquered so many miseries will be ashamed to worry about one more wound in a body which already has so many scars."_  
+> _"Restrict yourself to choice and refusal; and exercise them carefully, with discipline and detachment."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-20 18:14:16 UTC*</sub>
+<sub>*Last update: 2025-11-21 09:27:39 UTC*</sub>
 
