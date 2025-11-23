@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To wish to be well is a part of becoming well."_  
+> _"In the long run, every man will pay the penalty for his own misdeeds. The man who remembers this will be angry with no one, indignant with no one, revile no one, blame no one, offend no one, hate no one."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-22 18:12:09 UTC*</sub>
+<sub>*Last update: 2025-11-23 09:24:56 UTC*</sub>
 
