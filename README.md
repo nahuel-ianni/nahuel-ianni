@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"In the long run, every man will pay the penalty for his own misdeeds. The man who remembers this will be angry with no one, indignant with no one, revile no one, blame no one, offend no one, hate no one."_  
+> _"Everything of the body is a river. Everything of the soul is dream and vapour. Life is war and the abode of a stranger. The only fame after death is oblivion."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-23 09:24:56 UTC*</sub>
+<sub>*Last update: 2025-11-23 18:12:33 UTC*</sub>
 
