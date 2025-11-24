@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is only this present, a moment of time, that a man lives: all the rest either has been lived or may never."_  
+> _"The mind adapts and converts to its own purposes the obstacle to our acting. The impediment to action advances action. What stands in the way becomes the way."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-24 09:32:32 UTC*</sub>
+<sub>*Last update: 2025-11-24 18:14:49 UTC*</sub>
 
