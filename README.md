@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Everything of the body is a river. Everything of the soul is dream and vapour. Life is war and the abode of a stranger. The only fame after death is oblivion."_  
+> _"It is only this present, a moment of time, that a man lives: all the rest either has been lived or may never."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-23 18:12:33 UTC*</sub>
+<sub>*Last update: 2025-11-24 09:32:32 UTC*</sub>
 
