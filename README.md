@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are not disturbed by what happens to us, but by our thoughts about what happens to us."_  
+> _"Pride is a master of deception: when you think you're occupied in the weightiest business, that's when he has you in his spell."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-25 09:30:28 UTC*</sub>
+<sub>*Last update: 2025-11-25 18:15:01 UTC*</sub>
 
