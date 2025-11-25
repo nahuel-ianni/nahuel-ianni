@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The mind adapts and converts to its own purposes the obstacle to our acting. The impediment to action advances action. What stands in the way becomes the way."_  
+> _"We are not disturbed by what happens to us, but by our thoughts about what happens to us."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-24 18:14:49 UTC*</sub>
+<sub>*Last update: 2025-11-25 09:30:28 UTC*</sub>
 
