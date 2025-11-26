@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Pride is a master of deception: when you think you're occupied in the weightiest business, that's when he has you in his spell."_  
+> _"Light griefs are loquacious, but the great are dumb."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-25 18:15:01 UTC*</sub>
+<sub>*Last update: 2025-11-26 09:30:28 UTC*</sub>
 
