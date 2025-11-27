@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Begin at once to live, and count each separate day as a separate life."_  
+> _"Kingship: to earn a bad reputation by good deeds."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-26 18:12:10 UTC*</sub>
+<sub>*Last update: 2025-11-27 09:29:23 UTC*</sub>
 
