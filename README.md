@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Kingship: to earn a bad reputation by good deeds."_  
+> _"Nūllum magnum ingenium sine mixtūrā dēmentiae fuit No great talent without an element of madness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-27 09:29:23 UTC*</sub>
+<sub>*Last update: 2025-11-27 18:13:48 UTC*</sub>
 
