@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nūllum magnum ingenium sine mixtūrā dēmentiae fuit No great talent without an element of madness."_  
+> _"Take full account of what Excellencies you possess, and in gratitude remember how you would hanker after them, if you had them not."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-27 18:13:48 UTC*</sub>
+<sub>*Last update: 2025-11-28 09:27:59 UTC*</sub>
 
