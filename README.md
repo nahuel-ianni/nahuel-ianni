@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Poor woman, do you want to know where hatred ends? Look to love."_  
+> _"For the only safe harbour in this life's tossing, troubled sea is to refuse to be bothered about what the future will bring and to stand ready and confident, squaring the breast to take without skulking or flinching whatever fortune hurls at us."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-11-29 09:25:51 UTC*</sub>
+<sub>*Last update: 2025-11-29 18:12:50 UTC*</sub>
 
