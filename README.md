@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The universe is change, and life mere opinion."_  
+> _"Poor woman, do you want to know where hatred ends? Look to love."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-11-28 18:13:24 UTC*</sub>
+<sub>*Last update: 2025-11-29 09:25:51 UTC*</sub>
 
