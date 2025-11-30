@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For the only safe harbour in this life's tossing, troubled sea is to refuse to be bothered about what the future will bring and to stand ready and confident, squaring the breast to take without skulking or flinching whatever fortune hurls at us."_  
+> _"Caretake this moment. Immerse yourself in its particulars. Respond to this person, this challenge, this deed. Quit evasions. Stop giving yourself needless trouble. It is time to really live; to fully inhabit the situation you happen to be in now."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-29 18:12:50 UTC*</sub>
+<sub>*Last update: 2025-11-30 09:25:12 UTC*</sub>
 
