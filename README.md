@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Caretake this moment. Immerse yourself in its particulars. Respond to this person, this challenge, this deed. Quit evasions. Stop giving yourself needless trouble. It is time to really live; to fully inhabit the situation you happen to be in now."_  
+> _"Put from you the belief that 'I have been wronged', and with it will go the feeling. Reject your sense of injury, and the injury itself disappears."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-11-30 09:25:12 UTC*</sub>
+<sub>*Last update: 2025-11-30 18:12:57 UTC*</sub>
 
