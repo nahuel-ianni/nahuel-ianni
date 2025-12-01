@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You will never have to experience defeat if you avoid contests whose outcome is outside your control."_  
+> _"It is a shame when the soul is first to give way in this life, and the body does not give way."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-01 09:35:34 UTC*</sub>
+<sub>*Last update: 2025-12-01 18:15:37 UTC*</sub>
 
