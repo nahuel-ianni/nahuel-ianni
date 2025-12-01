@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Put from you the belief that 'I have been wronged', and with it will go the feeling. Reject your sense of injury, and the injury itself disappears."_  
+> _"You will never have to experience defeat if you avoid contests whose outcome is outside your control."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-11-30 18:12:57 UTC*</sub>
+<sub>*Last update: 2025-12-01 09:35:34 UTC*</sub>
 
