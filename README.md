@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We must make haste then, not only because we are daily nearer to death, but also because the conception of things and the understanding of them cease first."_  
+> _"Life is divided into three parts: what was, what is and what shall be. Of these three periods, the present is short, the future is doubtful and the past alone is certain."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-02 09:33:15 UTC*</sub>
+<sub>*Last update: 2025-12-02 18:15:45 UTC*</sub>
 
