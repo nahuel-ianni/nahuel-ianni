@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is a shame when the soul is first to give way in this life, and the body does not give way."_  
+> _"We must make haste then, not only because we are daily nearer to death, but also because the conception of things and the understanding of them cease first."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-01 18:15:37 UTC*</sub>
+<sub>*Last update: 2025-12-02 09:33:15 UTC*</sub>
 
