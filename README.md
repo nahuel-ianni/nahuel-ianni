@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life is divided into three parts: what was, what is and what shall be. Of these three periods, the present is short, the future is doubtful and the past alone is certain."_  
+> _"There is no favorable wind for the sailor who doesn’t know where to go."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-02 18:15:45 UTC*</sub>
+<sub>*Last update: 2025-12-03 09:31:39 UTC*</sub>
 
