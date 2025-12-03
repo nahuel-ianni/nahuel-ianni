@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no favorable wind for the sailor who doesn’t know where to go."_  
+> _"Whatever years be behind us are in death's hands."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-03 09:31:39 UTC*</sub>
+<sub>*Last update: 2025-12-03 18:15:27 UTC*</sub>
 
