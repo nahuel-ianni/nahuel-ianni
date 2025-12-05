@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
+> _"Spurn everything that is added by way of decoration and display by unneccesary labour. Relect that nothing merits admiration except the spirit, the impressiveness of which prevents it from being impressed by anything."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-05 09:29:01 UTC*</sub>
+<sub>*Last update: 2025-12-05 18:12:35 UTC*</sub>
 
