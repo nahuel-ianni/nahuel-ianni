@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To win true freeedom you must be a slave to philosophy."_  
+> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-04 18:15:42 UTC*</sub>
+<sub>*Last update: 2025-12-05 09:29:01 UTC*</sub>
 
