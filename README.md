@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Spurn everything that is added by way of decoration and display by unneccesary labour. Relect that nothing merits admiration except the spirit, the impressiveness of which prevents it from being impressed by anything."_  
+> _"You have no assurance that they are doing wrong at all, for the motives of man's actions are not always what they seem. There is generally much to learn before any judgement can be pronounced with certainty on another's doings."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-05 18:12:35 UTC*</sub>
+<sub>*Last update: 2025-12-06 09:25:53 UTC*</sub>
 
