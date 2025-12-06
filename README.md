@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You have no assurance that they are doing wrong at all, for the motives of man's actions are not always what they seem. There is generally much to learn before any judgement can be pronounced with certainty on another's doings."_  
+> _"People find particular things, however, frightening; and it's when someone is able to threaten or entice us with those that the man himself becomes frightening."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-06 09:25:53 UTC*</sub>
+<sub>*Last update: 2025-12-06 18:12:32 UTC*</sub>
 
