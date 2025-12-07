@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For some persons the remedy should be merely prescribed; in the case of others, it should be forced down their throats. ."_  
+> _"You have power over your mind - not outside events. Realize this, and you will find strength."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-07 09:25:18 UTC*</sub>
+<sub>*Last update: 2025-12-07 18:12:33 UTC*</sub>
 
