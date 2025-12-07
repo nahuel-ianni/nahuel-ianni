@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"People find particular things, however, frightening; and it's when someone is able to threaten or entice us with those that the man himself becomes frightening."_  
+> _"For some persons the remedy should be merely prescribed; in the case of others, it should be forced down their throats. ."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-06 18:12:32 UTC*</sub>
+<sub>*Last update: 2025-12-07 09:25:18 UTC*</sub>
 
