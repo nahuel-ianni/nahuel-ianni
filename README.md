@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Offer new prayers; pray for a sound mind and for good health, first of soul and then of body."_  
+> _"A ripe mature man, a perfect sound man; one that could not endure to be flattered; able to govern both himself and others."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-08 09:35:25 UTC*</sub>
+<sub>*Last update: 2025-12-08 18:15:28 UTC*</sub>
 
