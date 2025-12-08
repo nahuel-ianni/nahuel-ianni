@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You have power over your mind - not outside events. Realize this, and you will find strength."_  
+> _"Offer new prayers; pray for a sound mind and for good health, first of soul and then of body."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-07 18:12:33 UTC*</sub>
+<sub>*Last update: 2025-12-08 09:35:25 UTC*</sub>
 
