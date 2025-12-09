@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"A ripe mature man, a perfect sound man; one that could not endure to be flattered; able to govern both himself and others."_  
+> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-08 18:15:28 UTC*</sub>
+<sub>*Last update: 2025-12-09 09:31:03 UTC*</sub>
 
