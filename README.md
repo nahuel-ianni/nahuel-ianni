@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
+> _"Wherein Antoninus recordeth, What and of whom, whether Parents, Friends, or Masters; by their good examples, or good advice and counsel, he had learned."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-09 09:31:03 UTC*</sub>
+<sub>*Last update: 2025-12-09 18:13:07 UTC*</sub>
 
