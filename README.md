@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Wherein Antoninus recordeth, What and of whom, whether Parents, Friends, or Masters; by their good examples, or good advice and counsel, he had learned."_  
+> _"They lose the day in expectation of the night, and the night in fear of the dawn."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-09 18:13:07 UTC*</sub>
+<sub>*Last update: 2025-12-10 09:32:14 UTC*</sub>
 
