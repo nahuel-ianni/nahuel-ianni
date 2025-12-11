@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Gold tests with fire, woman with gold, man with woman."_  
+> _"In everything that you do, pause and ask yourself if death is a dreadful thing because it deprives you of this."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-10 18:15:54 UTC*</sub>
+<sub>*Last update: 2025-12-11 09:32:53 UTC*</sub>
 
