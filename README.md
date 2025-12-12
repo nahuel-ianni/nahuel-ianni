@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I was once a fortunate man but at some point fortune abandoned me. But true good fortune is what you make for yourself. Good fortune: good character, good intentions, and good actions."_  
+> _"There is no great genius without tincture of madness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-11 18:13:57 UTC*</sub>
+<sub>*Last update: 2025-12-12 09:32:11 UTC*</sub>
 
