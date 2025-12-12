@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"There is no great genius without tincture of madness."_  
+> _"This then remains: Remember to retire into this little territory of thy own, and, above all, do not distract or strain thyself, but be free, at look and things as a man, as a human being, as a citizen, as a mortal."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-12 09:32:11 UTC*</sub>
+<sub>*Last update: 2025-12-12 18:15:38 UTC*</sub>
 
