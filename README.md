@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We learn not in the school, but in life."_  
+> _"I wish Lucilius you had been so happy as to have taken this resolution long ago I wish we had not deferred to think of an happy life till now we are come within light of death But let us delay no longer."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-13 09:26:00 UTC*</sub>
+<sub>*Last update: 2025-12-13 18:12:36 UTC*</sub>
 
