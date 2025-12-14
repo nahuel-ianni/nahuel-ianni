@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I wish Lucilius you had been so happy as to have taken this resolution long ago I wish we had not deferred to think of an happy life till now we are come within light of death But let us delay no longer."_  
+> _"If any one trusted your body to the first man he met, you would be indignant, but yet you trust your mind to the chance comer, and allow it to be disturbed and confounded if he revile you; are you not ashamed to do so?"_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-13 18:12:36 UTC*</sub>
+<sub>*Last update: 2025-12-14 09:26:38 UTC*</sub>
 
