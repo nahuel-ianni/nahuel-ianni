@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If any one trusted your body to the first man he met, you would be indignant, but yet you trust your mind to the chance comer, and allow it to be disturbed and confounded if he revile you; are you not ashamed to do so?"_  
+> _"Inflicted."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-14 09:26:38 UTC*</sub>
+<sub>*Last update: 2025-12-14 18:13:33 UTC*</sub>
 
