@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If wisdom were offered me on the one condition that I should keep it shut away and not divulge it to anyone, I should reject it. There is no enjoying the possession of anything valuable unless one has someone to share it with."_  
+> _"If the Divine is faithful, he also must be faithful; if free, he also must be free; if beneficent, he also must be beneficent; if magnanimous, he also must be magnanimous. Thus as an imitator of God must he follow Him in every deed and word."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-15 09:39:25 UTC*</sub>
+<sub>*Last update: 2025-12-15 18:15:42 UTC*</sub>
 
