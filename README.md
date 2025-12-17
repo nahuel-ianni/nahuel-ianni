@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Keep thyself therefore, truly simple, good, sincere, grave, free from all ostentation, a lover of that which is just, religious, kind, tender-hearted, strong and vigorous to undergo anything that becomes thee."_  
+> _"Men are disturbed, not by things, but by the principles and notions which they form concerning things."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-17 09:34:24 UTC*</sub>
+<sub>*Last update: 2025-12-17 18:16:07 UTC*</sub>
 
