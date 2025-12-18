@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men are disturbed, not by things, but by the principles and notions which they form concerning things."_  
+> _"Thou art an old man; no longer let this be a slave, no longer be pulled by the strings like a puppet to unsocial movements, no longer either be dissatisfied with thy present lot, or shrink from the future."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-17 18:16:07 UTC*</sub>
+<sub>*Last update: 2025-12-18 09:33:58 UTC*</sub>
 
