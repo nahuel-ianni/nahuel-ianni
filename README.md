@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Thou art an old man; no longer let this be a slave, no longer be pulled by the strings like a puppet to unsocial movements, no longer either be dissatisfied with thy present lot, or shrink from the future."_  
+> _""No one," he says, "leaves this world in a different manner from one who has just been born." That is not true; for we are worse when we die than when we were born; but it is our fault, and not that of Nature."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-18 09:33:58 UTC*</sub>
+<sub>*Last update: 2025-12-18 18:15:41 UTC*</sub>
 
