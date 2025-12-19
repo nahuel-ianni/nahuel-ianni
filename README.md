@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I think the pinnacle of misfortune is to be forced by chance to want things one should loathe."_  
+> _"What concerns me is not the way things are, but the way people think things are."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-19 09:31:31 UTC*</sub>
+<sub>*Last update: 2025-12-19 18:14:33 UTC*</sub>
 
