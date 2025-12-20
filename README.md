@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Never say of anything that I've lost it, only that I've given it back."_  
+> _"God give me patience, to reconcile with what I am not able to change Give me strength to change what I can And give me wisdom to distinguish one from another."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-20 09:26:50 UTC*</sub>
+<sub>*Last update: 2025-12-20 18:12:35 UTC*</sub>
 
