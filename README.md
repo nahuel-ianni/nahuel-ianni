@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Don't put your purpose in one place and expect to see progress made somewhere else."_  
+> _"You should always look on human life as short and cheap. Yesterday sperm: tomorrow a mummy or ashes."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-21 09:27:18 UTC*</sub>
+<sub>*Last update: 2025-12-21 18:13:39 UTC*</sub>
 
