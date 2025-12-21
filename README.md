@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"God give me patience, to reconcile with what I am not able to change Give me strength to change what I can And give me wisdom to distinguish one from another."_  
+> _"Don't put your purpose in one place and expect to see progress made somewhere else."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-20 18:12:35 UTC*</sub>
+<sub>*Last update: 2025-12-21 09:27:18 UTC*</sub>
 
