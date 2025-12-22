@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Being without your country is not misery: you have thoroughly taught yourself by your studies to know that to a wise man every place is his country."_  
+> _"Thus thou must use to keep thyself to the first motions and apprehensions of things, as they present themselves outwardly; and add not unto them from within thyself through mere conceit and opinion."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-22 09:35:48 UTC*</sub>
+<sub>*Last update: 2025-12-22 18:14:58 UTC*</sub>
 
