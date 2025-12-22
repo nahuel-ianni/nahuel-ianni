@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You should always look on human life as short and cheap. Yesterday sperm: tomorrow a mummy or ashes."_  
+> _"Being without your country is not misery: you have thoroughly taught yourself by your studies to know that to a wise man every place is his country."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-21 18:13:39 UTC*</sub>
+<sub>*Last update: 2025-12-22 09:35:48 UTC*</sub>
 
