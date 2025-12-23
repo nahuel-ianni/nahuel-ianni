@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The preoccupied become aware of it only when it is over."_  
+> _"Our life is a warfare, and a mere pilgrimage."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-23 09:32:25 UTC*</sub>
+<sub>*Last update: 2025-12-23 18:15:14 UTC*</sub>
 
