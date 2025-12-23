@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Thus thou must use to keep thyself to the first motions and apprehensions of things, as they present themselves outwardly; and add not unto them from within thyself through mere conceit and opinion."_  
+> _"The preoccupied become aware of it only when it is over."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-22 18:14:58 UTC*</sub>
+<sub>*Last update: 2025-12-23 09:32:25 UTC*</sub>
 
