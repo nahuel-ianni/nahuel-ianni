@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Our life is a warfare, and a mere pilgrimage."_  
+> _"Fire tests gold and adversity tests the brave."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-23 18:15:14 UTC*</sub>
+<sub>*Last update: 2025-12-24 09:30:56 UTC*</sub>
 
