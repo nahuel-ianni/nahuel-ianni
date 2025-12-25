@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Finally, it is generally agreed that no activity can be successfully pursued by an individual who is preoccupied."_  
+> _"Ask yourself at every moment, 'Is this necessary?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-25 09:30:19 UTC*</sub>
+<sub>*Last update: 2025-12-25 18:14:34 UTC*</sub>
 
