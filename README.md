@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Why do I not rather seek some real good - one which I could feel, not one which I could display? These things that draw the eyes of men, before which they halt, which they show to one another in wonder, outwardly glitter, but are worthless within."_  
+> _"The primary indication, to my thinking, of a well-ordered mind is a man's ability to remain in one place and linger in his own company."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-26 09:29:47 UTC*</sub>
+<sub>*Last update: 2025-12-26 18:14:38 UTC*</sub>
 
