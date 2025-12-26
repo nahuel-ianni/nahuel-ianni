@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ask yourself at every moment, 'Is this necessary?"_  
+> _"Why do I not rather seek some real good - one which I could feel, not one which I could display? These things that draw the eyes of men, before which they halt, which they show to one another in wonder, outwardly glitter, but are worthless within."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-25 18:14:34 UTC*</sub>
+<sub>*Last update: 2025-12-26 09:29:47 UTC*</sub>
 
