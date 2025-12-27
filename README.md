@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The more a mind takes in the more it expands."_  
+> _"You'd have a better chance persuading someone to change their sexual orientation than reaching people who have rendered themselves so deaf and blind."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-27 09:27:13 UTC*</sub>
+<sub>*Last update: 2025-12-27 18:13:33 UTC*</sub>
 
