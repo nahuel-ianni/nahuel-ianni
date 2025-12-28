@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Show me a man who though sick is happy, who though in danger is happy, who though in prison is happy, and I'll show you a Stoic."_  
+> _"Fire tests gold, suffering tests brave men."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-28 09:27:15 UTC*</sub>
+<sub>*Last update: 2025-12-28 18:14:01 UTC*</sub>
 
