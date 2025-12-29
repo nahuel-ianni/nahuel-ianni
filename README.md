@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Fire tests gold, suffering tests brave men."_  
+> _"Fire feeds on obstacles."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-28 18:14:01 UTC*</sub>
+<sub>*Last update: 2025-12-29 09:37:51 UTC*</sub>
 
