@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Fire feeds on obstacles."_  
+> _"Leisure without books is death, and burial of a man alive."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-29 09:37:51 UTC*</sub>
+<sub>*Last update: 2025-12-29 18:15:33 UTC*</sub>
 
