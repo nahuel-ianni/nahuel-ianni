@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The wise man, he said, lacked nothing but needed a great number of things, whereas 'the fool, on the other hand, needs nothing (for he does not know how to use anything) but lack everything."_  
+> _"Time is a river, a violent current of events, glimpsed once and already carried past us, and another follows and is gone."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-30 09:32:18 UTC*</sub>
+<sub>*Last update: 2025-12-30 18:15:28 UTC*</sub>
 
