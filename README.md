@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Leisure without books is death, and burial of a man alive."_  
+> _"The wise man, he said, lacked nothing but needed a great number of things, whereas 'the fool, on the other hand, needs nothing (for he does not know how to use anything) but lack everything."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2025-12-29 18:15:33 UTC*</sub>
+<sub>*Last update: 2025-12-30 09:32:18 UTC*</sub>
 
