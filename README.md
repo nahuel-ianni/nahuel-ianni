@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Time is a river, a violent current of events, glimpsed once and already carried past us, and another follows and is gone."_  
+> _"God save me from fools with a little philosophy—no one is more difficult to reach."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2025-12-30 18:15:28 UTC*</sub>
+<sub>*Last update: 2025-12-31 09:31:55 UTC*</sub>
 
