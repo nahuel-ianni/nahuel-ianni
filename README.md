@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"God save me from fools with a little philosophy—no one is more difficult to reach."_  
+> _"While the fates permit, live happily; life speeds on with hurried step, and with winged days the wheel of the headlong year is turned."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2025-12-31 09:31:55 UTC*</sub>
+<sub>*Last update: 2025-12-31 18:14:48 UTC*</sub>
 
