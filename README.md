@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"While the fates permit, live happily; life speeds on with hurried step, and with winged days the wheel of the headlong year is turned."_  
+> _"The soul becomes dyed with the colour of its thoughts."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2025-12-31 18:14:48 UTC*</sub>
+<sub>*Last update: 2026-01-01 09:32:04 UTC*</sub>
 
