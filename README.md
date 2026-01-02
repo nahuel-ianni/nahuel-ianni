@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If something is difficult for you to accomplish, do not then think it impossible for any human being; rather, if it is humanly possible and corresponds to human nature, know that it is attainable by you as well."_  
+> _"No delicate breeze brings comfort with icy breath of wind to the hearts which pant on the flames."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-02 09:31:28 UTC*</sub>
+<sub>*Last update: 2026-01-02 18:14:44 UTC*</sub>
 
