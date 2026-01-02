@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Write something therefore in a simple style, merely to pass the time, for your own use, and not for publication. Less labour is needed when one does not look beyond the present." Then."_  
+> _"If something is difficult for you to accomplish, do not then think it impossible for any human being; rather, if it is humanly possible and corresponds to human nature, know that it is attainable by you as well."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-01 18:14:50 UTC*</sub>
+<sub>*Last update: 2026-01-02 09:31:28 UTC*</sub>
 
