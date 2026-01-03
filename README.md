@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Remember that you are an actor in a drama, of such a kind as the author pleases to make it. If short, of a short one; if long, of a long one."_  
+> _"Ignis aurum probat, miseria fortes viros. Fire is the test of gold; adversity, of strong men."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-03 09:27:11 UTC*</sub>
+<sub>*Last update: 2026-01-03 18:13:45 UTC*</sub>
 
