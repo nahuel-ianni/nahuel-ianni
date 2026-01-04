@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ignis aurum probat, miseria fortes viros. Fire is the test of gold; adversity, of strong men."_  
+> _"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-03 18:13:45 UTC*</sub>
+<sub>*Last update: 2026-01-04 09:26:27 UTC*</sub>
 
