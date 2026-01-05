@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I will storm the gods, and shake the universe."_  
+> _"Moreover, to endure labour; nor to need many things; when I have anything to do, to do it myself rather than by others; not to meddle with many businesses; and not easily to admit of any slander."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-04 18:14:08 UTC*</sub>
+<sub>*Last update: 2026-01-05 09:40:09 UTC*</sub>
 
