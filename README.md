@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Moreover, to endure labour; nor to need many things; when I have anything to do, to do it myself rather than by others; not to meddle with many businesses; and not easily to admit of any slander."_  
+> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-05 09:40:09 UTC*</sub>
+<sub>*Last update: 2026-01-05 18:16:47 UTC*</sub>
 
