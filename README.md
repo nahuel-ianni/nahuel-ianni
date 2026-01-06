@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And what’s so bad about your being deprived of that? All things seem unbearable to people who have become spoilt, who have become soft through a life of luxury, ailing more in the mind than they ever are in the body."_  
+> _"Men do not care how nobly they live, but only for how long, although it is within the reach of every man to live nobly, but within no man’s power to live long."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-05 18:16:47 UTC*</sub>
+<sub>*Last update: 2026-01-06 09:34:07 UTC*</sub>
 
