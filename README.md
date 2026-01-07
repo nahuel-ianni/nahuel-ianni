@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Unbroken prosperity cannot bear a single blow; but he who has waged an unceasing strife with his misfortunes has gained a thicker skin by his sufferings, yields to no disaster, and even though he fall yet fights on his knee."_  
+> _"With how little he was satisfied, such as lodging, bed, dress, food, servants."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-06 18:15:17 UTC*</sub>
+<sub>*Last update: 2026-01-07 09:35:11 UTC*</sub>
 
