@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The art of living is more like wrestling than dancing, in as much as it, too, demands a from and watchful stance against any unexpected onset."_  
+> _"Faced with pain, you will discover the power of endurance. If you are insulted, you will discover patience. In time, you will grow to be confident that there is not a single impression that you will not have the moral means to tolerate."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-07 18:16:07 UTC*</sub>
+<sub>*Last update: 2026-01-08 09:35:26 UTC*</sub>
 
