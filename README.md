@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Conversation has a kind of charm about it, an insinuating and insidious something that elicits secrets just like love or liquor."_  
+> _"To read with diligence; not to rest satisfied with a light and superficial knowledge, nor quickly to assent to things commonly spoken of: whom."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-09 09:35:06 UTC*</sub>
+<sub>*Last update: 2026-01-09 18:15:44 UTC*</sub>
 
