@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Anything in any way beautiful derives its beauty from itself and asks nothing beyond itself. Praise is no part of it, for nothing is made worse or better by praise."_  
+> _"Conversation has a kind of charm about it, an insinuating and insidious something that elicits secrets just like love or liquor."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-08 18:14:19 UTC*</sub>
+<sub>*Last update: 2026-01-09 09:35:06 UTC*</sub>
 
