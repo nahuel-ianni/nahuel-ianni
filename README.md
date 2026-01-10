@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To read with diligence; not to rest satisfied with a light and superficial knowledge, nor quickly to assent to things commonly spoken of: whom."_  
+> _"What saith Antisthenes? Hast thou never heard?— It is a kingly thing, O Cyrus, to do well and to be evil spoken of."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-09 18:15:44 UTC*</sub>
+<sub>*Last update: 2026-01-10 09:27:35 UTC*</sub>
 
