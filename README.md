@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What saith Antisthenes? Hast thou never heard?— It is a kingly thing, O Cyrus, to do well and to be evil spoken of."_  
+> _"You are a little soul carrying a dead body, as Epictetus said."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-01-10 09:27:35 UTC*</sub>
+<sub>*Last update: 2026-01-10 18:14:17 UTC*</sub>
 
