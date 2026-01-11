@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You are a little soul carrying a dead body, as Epictetus said."_  
+> _"From my Great-grandfather, not to have frequented public schools, and to have had good teachers at home, and to know that on such things a man should spend liberally."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-10 18:14:17 UTC*</sub>
+<sub>*Last update: 2026-01-11 09:28:00 UTC*</sub>
 
