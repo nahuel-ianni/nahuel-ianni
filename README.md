@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
+> _"Whoever then would be free, let him wish for nothing, let him decline nothing, which depends on others; else he must necessarily be a slave."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-12 09:39:58 UTC*</sub>
+<sub>*Last update: 2026-01-12 18:15:57 UTC*</sub>
 
