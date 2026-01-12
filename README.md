@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The man of ambition thinks to find his good in the operations of others; the man of pleasure in his own sensations; but the man of understanding in his own actions."_  
+> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-11 18:14:06 UTC*</sub>
+<sub>*Last update: 2026-01-12 09:39:58 UTC*</sub>
 
