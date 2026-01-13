@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whoever then would be free, let him wish for nothing, let him decline nothing, which depends on others; else he must necessarily be a slave."_  
+> _"The universe is change, and life mere opinion."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-12 18:15:57 UTC*</sub>
+<sub>*Last update: 2026-01-13 09:35:21 UTC*</sub>
 
