@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Fortify yourself with contentment for this is an impregnable fortress."_  
+> _"It is our attitude toward events, not events themselves, which we can control. Nothing is by its own nature calamitous -- even death is terrible only if we fear it."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-01-14 09:35:47 UTC*</sub>
+<sub>*Last update: 2026-01-14 18:17:02 UTC*</sub>
 
