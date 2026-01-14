@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever happens, happens rightly. Watch closely, and you will find this true. In the succession of events there is not mere sequence alone, but an order that is just right, as from the hand of one who dispense to their due."_  
+> _"Fortify yourself with contentment for this is an impregnable fortress."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-13 18:17:32 UTC*</sub>
+<sub>*Last update: 2026-01-14 09:35:47 UTC*</sub>
 
