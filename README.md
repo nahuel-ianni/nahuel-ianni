@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is our attitude toward events, not events themselves, which we can control. Nothing is by its own nature calamitous -- even death is terrible only if we fear it."_  
+> _"Spend not the remnant of thy days in thoughts and fancies concerning other men, when it is not in relation to some common good, when by it thou art hindered from some other better work."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-14 18:17:02 UTC*</sub>
+<sub>*Last update: 2026-01-15 09:35:01 UTC*</sub>
 
