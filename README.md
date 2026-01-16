@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For a man to be proud and high conceited, that he is not proud and high conceited, is of all kind of pride and presumption, the most intolerable."_  
+> _"The mind that is anxious about future events is miserable."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-16 09:34:01 UTC*</sub>
+<sub>*Last update: 2026-01-16 18:16:28 UTC*</sub>
 
