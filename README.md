@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The mind that is anxious about future events is miserable."_  
+> _"Our own worth is measured by what we devote our energy to.  4."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-16 18:16:28 UTC*</sub>
+<sub>*Last update: 2026-01-17 09:27:23 UTC*</sub>
 
