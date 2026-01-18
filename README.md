@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Live every day as if they last."_  
+> _"Life, if you know how to use it, is long; but…many, following no fixed aim, shifting and… dissatisfied, are plunged by their fickleness into plans that are ever new; some have no fixed principle by which to direct their course."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-17 18:14:07 UTC*</sub>
+<sub>*Last update: 2026-01-18 09:28:34 UTC*</sub>
 
