@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life, if you know how to use it, is long; but…many, following no fixed aim, shifting and… dissatisfied, are plunged by their fickleness into plans that are ever new; some have no fixed principle by which to direct their course."_  
+> _"How late it is to begin living only when one must stop!"_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-18 09:28:34 UTC*</sub>
+<sub>*Last update: 2026-01-18 18:13:39 UTC*</sub>
 
