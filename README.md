@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How late it is to begin living only when one must stop!"_  
+> _"Thou art a little soul bearing about a corpse."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-18 18:13:39 UTC*</sub>
+<sub>*Last update: 2026-01-19 09:42:51 UTC*</sub>
 
