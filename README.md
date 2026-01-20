@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whenever I wish to enjoy the quips of a clown, I am not compelled to hunt far; I can laugh at myself."_  
+> _"Theseus: What is the crime for which you must pay by death? Phaedra: My life."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-20 09:39:57 UTC*</sub>
+<sub>*Last update: 2026-01-20 18:19:01 UTC*</sub>
 
