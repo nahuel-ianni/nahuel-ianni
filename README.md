@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Whatever happens to every man, this is for the interest of the universal."_  
+> _"Whenever I wish to enjoy the quips of a clown, I am not compelled to hunt far; I can laugh at myself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-19 18:15:45 UTC*</sub>
+<sub>*Last update: 2026-01-20 09:39:57 UTC*</sub>
 
