@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Theseus: What is the crime for which you must pay by death? Phaedra: My life."_  
+> _"Is it not the same distance to God everywhere?"_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-20 18:19:01 UTC*</sub>
+<sub>*Last update: 2026-01-21 09:39:41 UTC*</sub>
 
