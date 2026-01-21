@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Is it not the same distance to God everywhere?"_  
+> _"Men exist for the sake of one another."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-21 09:39:41 UTC*</sub>
+<sub>*Last update: 2026-01-21 18:27:36 UTC*</sub>
 
