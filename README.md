@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Where a man can live, there he can also live well. But he must live in a palace;- well then, he can also live well in a palace."_  
+> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-22 09:39:50 UTC*</sub>
+<sub>*Last update: 2026-01-22 18:16:06 UTC*</sub>
 
