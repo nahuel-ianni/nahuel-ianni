@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If a great man falls and remains great as he lies, people no more despise him than they stamp on a fallen temple, which the devout still worship as much as when it was standing."_  
+> _"For it is in your power to retire into yourself whenever you choose."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-22 18:16:06 UTC*</sub>
+<sub>*Last update: 2026-01-23 09:37:24 UTC*</sub>
 
