@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"For it is in your power to retire into yourself whenever you choose."_  
+> _"Of all existing things some are in our power, and others are not in our power."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-23 09:37:24 UTC*</sub>
+<sub>*Last update: 2026-01-23 18:16:40 UTC*</sub>
 
