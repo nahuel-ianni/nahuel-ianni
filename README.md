@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Of all existing things some are in our power, and others are not in our power."_  
+> _"Life is long, if you know how to use it."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-23 18:16:40 UTC*</sub>
+<sub>*Last update: 2026-01-24 09:27:54 UTC*</sub>
 
