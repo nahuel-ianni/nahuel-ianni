@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Life is long, if you know how to use it."_  
+> _"We are not given a short life but we make it short, and we are not ill-supplied but wasteful of it."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-24 09:27:54 UTC*</sub>
+<sub>*Last update: 2026-01-24 18:14:39 UTC*</sub>
 
