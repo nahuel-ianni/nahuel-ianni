@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Honours, monuments, whatever the ambitious have ordered by decrees or raised in public buildings are soon destroyed: there is nothing that the passage of time does not demolish and remove."_  
+> _"How late it is to begin really to live just when life must end! How stupid to forget our mortality, and put off sensible plans to our fiftieth and sixtieth years, aiming to begin life from a point at which few have arrived!"_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-25 09:29:06 UTC*</sub>
+<sub>*Last update: 2026-01-25 18:14:27 UTC*</sub>
 
