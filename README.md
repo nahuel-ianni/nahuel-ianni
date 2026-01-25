@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are not given a short life but we make it short, and we are not ill-supplied but wasteful of it."_  
+> _"Honours, monuments, whatever the ambitious have ordered by decrees or raised in public buildings are soon destroyed: there is nothing that the passage of time does not demolish and remove."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-24 18:14:39 UTC*</sub>
+<sub>*Last update: 2026-01-25 09:29:06 UTC*</sub>
 
