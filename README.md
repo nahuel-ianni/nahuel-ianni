@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To be like the rock that the waves keep crashing over. It stands unmoved and the raging of the sea falls still around it."_  
+> _"He who saw that everything depended on himself alone, who decided the fortune of individuals and nations, was happiest when thinking of that day on which he would lay aside his own greatness."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-26 09:41:34 UTC*</sub>
+<sub>*Last update: 2026-01-26 18:18:31 UTC*</sub>
 
