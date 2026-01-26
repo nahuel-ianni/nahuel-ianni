@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How late it is to begin really to live just when life must end! How stupid to forget our mortality, and put off sensible plans to our fiftieth and sixtieth years, aiming to begin life from a point at which few have arrived!"_  
+> _"To be like the rock that the waves keep crashing over. It stands unmoved and the raging of the sea falls still around it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-25 18:14:27 UTC*</sub>
+<sub>*Last update: 2026-01-26 09:41:34 UTC*</sub>
 
