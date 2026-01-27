@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He who saw that everything depended on himself alone, who decided the fortune of individuals and nations, was happiest when thinking of that day on which he would lay aside his own greatness."_  
+> _"Hence the dictum of the greatest of doctors:† ‘Life is short, art is long."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-01-26 18:18:31 UTC*</sub>
+<sub>*Last update: 2026-01-27 09:40:41 UTC*</sub>
 
