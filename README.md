@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Hence the dictum of the greatest of doctors:† ‘Life is short, art is long."_  
+> _"You have power over your mind - not outside events. Realize this, and you will find strength. When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-27 09:40:41 UTC*</sub>
+<sub>*Last update: 2026-01-27 18:21:03 UTC*</sub>
 
