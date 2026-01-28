@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You have power over your mind - not outside events. Realize this, and you will find strength. When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love."_  
+> _" Lead me, O Zeus, and thou O Destiny, the way that I am bid by you to go: To follow I am ready. If I choose not, I make myself a wretch, and still must follow."_  
 >
-> — **Marcus Aurelius**
+> — **Cleanthes**
 
-<sub>*Last update: 2026-01-27 18:21:03 UTC*</sub>
+<sub>*Last update: 2026-01-28 09:41:00 UTC*</sub>
 
