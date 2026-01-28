@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _" Lead me, O Zeus, and thou O Destiny, the way that I am bid by you to go: To follow I am ready. If I choose not, I make myself a wretch, and still must follow."_  
+> _"Believe me, it is the sign of a great man, and one who is above human error, not to allow his time to be frittered away: he has the longest possible life simply because whatever time was available he devoted entirely to himself."_  
 >
-> — **Cleanthes**
+> — **Seneca**
 
-<sub>*Last update: 2026-01-28 09:41:00 UTC*</sub>
+<sub>*Last update: 2026-01-28 18:21:38 UTC*</sub>
 
