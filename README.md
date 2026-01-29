@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Believe me, it is the sign of a great man, and one who is above human error, not to allow his time to be frittered away: he has the longest possible life simply because whatever time was available he devoted entirely to himself."_  
+> _"Only consider at what price you sell your own will: if for no other reason, at least for this, that you sell it not for a small sum."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-28 18:21:38 UTC*</sub>
+<sub>*Last update: 2026-01-29 09:53:04 UTC*</sub>
 
