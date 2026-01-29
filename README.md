@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Only consider at what price you sell your own will: if for no other reason, at least for this, that you sell it not for a small sum."_  
+> _"Who are those people by whom you wish to be admired? Are they not these whom you are in the habit of saying that they are mad? What then? Do you wish to be admired by the mad?"_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-01-29 09:53:04 UTC*</sub>
+<sub>*Last update: 2026-01-29 18:27:58 UTC*</sub>
 
