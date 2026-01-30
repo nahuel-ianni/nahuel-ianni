@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Who are those people by whom you wish to be admired? Are they not these whom you are in the habit of saying that they are mad? What then? Do you wish to be admired by the mad?"_  
+> _"The universe is transformation; life is opinion."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-29 18:27:58 UTC*</sub>
+<sub>*Last update: 2026-01-30 09:49:15 UTC*</sub>
 
