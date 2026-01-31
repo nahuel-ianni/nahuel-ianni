@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Give me by all means the shorter and nobler life, instead of one that is longer but of less account!"_  
+> _"Keep thyself therefore, truly simple, good, sincere, grave, free from all ostentation, a lover of that which is just, religious, kind, tender-hearted, strong and vigorous to undergo anything that becomes thee."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-01-31 09:35:41 UTC*</sub>
+<sub>*Last update: 2026-01-31 18:15:55 UTC*</sub>
 
