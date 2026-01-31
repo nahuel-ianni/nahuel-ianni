@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You can live here as you expect to live there."_  
+> _"Give me by all means the shorter and nobler life, instead of one that is longer but of less account!"_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-01-30 18:25:21 UTC*</sub>
+<sub>*Last update: 2026-01-31 09:35:41 UTC*</sub>
 
