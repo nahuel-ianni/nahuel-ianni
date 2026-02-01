@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"That which has died falls not out of the universe. If it stays here, it also changes here, and is dissolved into its proper parts, which are elements of the universe and of thyself. And these too change, and they murmur not."_  
+> _"Leisure without books is death, and burial of a man alive."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-01 09:38:09 UTC*</sub>
+<sub>*Last update: 2026-02-01 18:17:20 UTC*</sub>
 
