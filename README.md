@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Leisure without books is death, and burial of a man alive."_  
+> _"It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-01 18:17:20 UTC*</sub>
+<sub>*Last update: 2026-02-02 09:59:52 UTC*</sub>
 
