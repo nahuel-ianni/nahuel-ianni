@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Death smiles at us all, all a man can do is smile back."_  
+> _"Ambition means tying your well-being to what other people say or do. Self-indulgence means tying it to the things that happen to you. Sanity means tying it to your own actions."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-03 18:38:50 UTC*</sub>
+<sub>*Last update: 2026-02-04 09:54:25 UTC*</sub>
 
