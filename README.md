@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To live happily is an inward power of the soul."_  
+> _"All those who call you to themselves draw you away from yourself."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-04 18:31:52 UTC*</sub>
+<sub>*Last update: 2026-02-05 09:55:02 UTC*</sub>
 
