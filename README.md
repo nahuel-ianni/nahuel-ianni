@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"All those who call you to themselves draw you away from yourself."_  
+> _"Death hangs over thee. While thou livest, while it is in thy power, be good."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-05 09:55:02 UTC*</sub>
+<sub>*Last update: 2026-02-05 18:33:13 UTC*</sub>
 
