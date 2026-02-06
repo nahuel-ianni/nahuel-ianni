@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Death hangs over thee. While thou livest, while it is in thy power, be good."_  
+> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-05 18:33:13 UTC*</sub>
+<sub>*Last update: 2026-02-06 09:53:31 UTC*</sub>
 
