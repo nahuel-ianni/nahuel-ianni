@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
+> _"We should every night call ourselves to an account;  What infirmity have I mastered today?  What passions opposed? What temptation resisted? What virtue acquired? Our vices will abort of themselves if they be brought every day to the shrift."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-02-06 09:53:31 UTC*</sub>
+<sub>*Last update: 2026-02-06 18:31:08 UTC*</sub>
 
