@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We should every night call ourselves to an account;  What infirmity have I mastered today?  What passions opposed? What temptation resisted? What virtue acquired? Our vices will abort of themselves if they be brought every day to the shrift."_  
+> _"To live happily is an inward power of the soul."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-06 18:31:08 UTC*</sub>
+<sub>*Last update: 2026-02-07 09:38:02 UTC*</sub>
 
