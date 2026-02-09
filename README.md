@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Manage all your actions, words, and thoughts accordingly, since you may at any moment quit life."_  
+> _"When a man does not know what harbor he is making for, no wind is the right wind."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-09 10:09:26 UTC*</sub>
+<sub>*Last update: 2026-02-09 18:39:54 UTC*</sub>
 
