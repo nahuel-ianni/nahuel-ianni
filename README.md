@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When Zeno received news of a shipwreck and heard that all his luggage had been sunk he said, “Fortune bids me to be a less encumbered philosopher.”"_  
+> _"Manage all your actions, words, and thoughts accordingly, since you may at any moment quit life."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-08 18:19:00 UTC*</sub>
+<sub>*Last update: 2026-02-09 10:09:26 UTC*</sub>
 
