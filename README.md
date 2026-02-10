@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The universe is change; our life is what our thoughts make it."_  
+> _"It is not that we have a short time to live, but that we waste a lot of it. Life is long enough, and a sufficiently generous amount has been given to us for the highest achievements if it were all well invested."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-10 10:04:44 UTC*</sub>
+<sub>*Last update: 2026-02-10 18:49:44 UTC*</sub>
 
