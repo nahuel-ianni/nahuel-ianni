@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"You must linger among a limited number of master thinkers, and digest their works, if you would derive ideas which shall win firm hold in your mind. ."_  
+> _"To pursue the impossible is madness: but it is impossible for evil men not to do things of this sort."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-11 09:59:30 UTC*</sub>
+<sub>*Last update: 2026-02-11 18:45:15 UTC*</sub>
 
