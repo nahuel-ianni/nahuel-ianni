@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To pursue the impossible is madness: but it is impossible for evil men not to do things of this sort."_  
+> _"The perfection of moral character consists in this, in passing every day as the last, and in being neither violently excited nor torpid nor playing the hypocrite."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-11 18:45:15 UTC*</sub>
+<sub>*Last update: 2026-02-12 09:58:10 UTC*</sub>
 
