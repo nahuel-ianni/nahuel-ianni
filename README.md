@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And indeed he who pursues pleasure as good, and avoids pain as evil, is guilty of impiety."_  
+> _"Men are not made restless by activity but driven to madness by false impressions of reality."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-13 09:54:52 UTC*</sub>
+<sub>*Last update: 2026-02-13 18:29:20 UTC*</sub>
 
