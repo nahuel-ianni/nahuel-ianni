@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nothing is ours, except time."_  
+> _"It is man's peculiar duty to love even those who wrong him."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-14 09:38:39 UTC*</sub>
+<sub>*Last update: 2026-02-14 18:17:20 UTC*</sub>
 
