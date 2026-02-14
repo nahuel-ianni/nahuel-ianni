@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men are not made restless by activity but driven to madness by false impressions of reality."_  
+> _"Nothing is ours, except time."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-02-13 18:29:20 UTC*</sub>
+<sub>*Last update: 2026-02-14 09:38:39 UTC*</sub>
 
