@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Hurry up and live."_  
+> _"How ridiculous and what a stranger he is who is surprised at anything which happens in life."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-15 09:39:29 UTC*</sub>
+<sub>*Last update: 2026-02-15 18:18:26 UTC*</sub>
 
