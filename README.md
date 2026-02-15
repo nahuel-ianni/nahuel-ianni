@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is man's peculiar duty to love even those who wrong him."_  
+> _"Hurry up and live."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-14 18:17:20 UTC*</sub>
+<sub>*Last update: 2026-02-15 09:39:29 UTC*</sub>
 
