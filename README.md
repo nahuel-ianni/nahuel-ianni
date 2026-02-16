@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How ridiculous and what a stranger he is who is surprised at anything which happens in life."_  
+> _"Life is long and there is enough of it for satisfying personal accomplishments if we use our hours well."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-15 18:18:26 UTC*</sub>
+<sub>*Last update: 2026-02-16 10:01:37 UTC*</sub>
 
