@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Kings hate to hear the things they order spoken."_  
+> _"Men are disturbed not by the things that happen, but by their opinion of the things that happen."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-02-17 09:57:05 UTC*</sub>
+<sub>*Last update: 2026-02-17 18:39:44 UTC*</sub>
 
