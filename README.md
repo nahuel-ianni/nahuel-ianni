@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"He was taught to dress plainly and to live simply, to avoid all softness and luxury."_  
+> _"Now a man should take away not only unnecessary acts, but also, unnecessary thoughts, for thus superfluous acts will not follow after."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-18 18:35:22 UTC*</sub>
+<sub>*Last update: 2026-02-19 09:57:30 UTC*</sub>
 
