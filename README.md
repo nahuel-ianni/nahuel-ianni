@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"So other people hurt me? That’s their problem. Their character and actions are not mine. What is done to me is ordained by nature, what I do by my own."_  
+> _"No man can rob us of our Will—no man can lord it over that!"_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-02-20 18:29:32 UTC*</sub>
+<sub>*Last update: 2026-02-21 09:37:44 UTC*</sub>
 
