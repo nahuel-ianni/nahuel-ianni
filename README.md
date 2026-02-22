@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not run hither and thither and distract yourself by changing your abode; for such restlessness is the sign of a disordered spirit."_  
+> _"If it doesn't harm your character, how can it harm your life?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-21 18:17:28 UTC*</sub>
+<sub>*Last update: 2026-02-22 09:38:48 UTC*</sub>
 
