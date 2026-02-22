@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If it doesn't harm your character, how can it harm your life?"_  
+> _"When force of circumstance upsets your equanimity, lose no time in recovering your self-control, and do not remain out of tune longer than you can help. Habitual recurrence to the harmony will increase your mastery of it."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-22 09:38:48 UTC*</sub>
+<sub>*Last update: 2026-02-22 18:18:21 UTC*</sub>
 
