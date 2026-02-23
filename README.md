@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"To reduce your worry, you must assume that what you fear may happen is certainly going to happen."_  
+> _"Look back over the past, with its changing empires that rose and fell, and you can foresee the future too."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-23 10:02:28 UTC*</sub>
+<sub>*Last update: 2026-02-23 18:44:41 UTC*</sub>
 
