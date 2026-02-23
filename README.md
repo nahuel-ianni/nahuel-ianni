@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When force of circumstance upsets your equanimity, lose no time in recovering your self-control, and do not remain out of tune longer than you can help. Habitual recurrence to the harmony will increase your mastery of it."_  
+> _"To reduce your worry, you must assume that what you fear may happen is certainly going to happen."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-22 18:18:21 UTC*</sub>
+<sub>*Last update: 2026-02-23 10:02:28 UTC*</sub>
 
