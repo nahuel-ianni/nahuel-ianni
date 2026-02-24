@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Look back over the past, with its changing empires that rose and fell, and you can foresee the future too."_  
+> _"The man who fears death will never do anything worthy of a man who is alive."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-23 18:44:41 UTC*</sub>
+<sub>*Last update: 2026-02-24 09:58:48 UTC*</sub>
 
