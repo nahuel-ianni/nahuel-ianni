@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The man who fears death will never do anything worthy of a man who is alive."_  
+> _"Don’t be ashamed to need help. Like a soldier storming a wall, you have a mission to accomplish. And if you’ve been wounded and you need a comrade to pull you up? So what?"_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-24 09:58:48 UTC*</sub>
+<sub>*Last update: 2026-02-24 18:43:10 UTC*</sub>
 
