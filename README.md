@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No one keeps himself waiting; and yet the greatest cure for anger is to wait, so that the initial passion it engenders may die down, and the fog that shrouds the mind may subside, or become less thick."_  
+> _"The wise person knows it is fruitless to project hopes and fears on the future. This only leads to forming melodramatic representations in your mind and wasting time."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-02-25 18:47:41 UTC*</sub>
+<sub>*Last update: 2026-02-26 09:57:25 UTC*</sub>
 
