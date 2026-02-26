@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The wise person knows it is fruitless to project hopes and fears on the future. This only leads to forming melodramatic representations in your mind and wasting time."_  
+> _"Forget everything else. Keep hold of this alone and remember it: Each of us lives only now, this brief instant. The rest has been lived already, or is impossible to see."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-26 09:57:25 UTC*</sub>
+<sub>*Last update: 2026-02-26 18:35:14 UTC*</sub>
 
