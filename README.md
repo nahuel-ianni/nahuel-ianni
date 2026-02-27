@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The perfection of moral character consists in this, in passing every day as the last, and in being neither violently excited nor torpid nor playing the hypocrite."_  
+> _"It is the act of an ill-instructed man to blame others for his own bad condition; it is the act of one who has begun to be instructed, to lay the blame on himself; and of one whose instruction is completed, neither to blame another, nor himself."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-02-27 09:52:40 UTC*</sub>
+<sub>*Last update: 2026-02-27 18:24:36 UTC*</sub>
 
