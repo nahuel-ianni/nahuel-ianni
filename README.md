@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is the act of an ill-instructed man to blame others for his own bad condition; it is the act of one who has begun to be instructed, to lay the blame on himself; and of one whose instruction is completed, neither to blame another, nor himself."_  
+> _"The wise man, he said, lacked nothing but needed a great number of things, whereas 'the fool, on the other hand, needs nothing (for he does not know how to use anything) but lack everything."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-27 18:24:36 UTC*</sub>
+<sub>*Last update: 2026-02-28 09:33:37 UTC*</sub>
 
