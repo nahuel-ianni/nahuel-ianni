@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The wise man, he said, lacked nothing but needed a great number of things, whereas 'the fool, on the other hand, needs nothing (for he does not know how to use anything) but lack everything."_  
+> _"Forget everything else. Keep hold of this alone and remember it: Each of us lives only now, this brief instant. The rest has been lived already, or is impossible to see. The span we live is small—small."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-02-28 09:33:37 UTC*</sub>
+<sub>*Last update: 2026-02-28 18:15:49 UTC*</sub>
 
