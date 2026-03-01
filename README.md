@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Forget everything else. Keep hold of this alone and remember it: Each of us lives only now, this brief instant. The rest has been lived already, or is impossible to see. The span we live is small—small."_  
+> _"The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but  we have been a long time on the way."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-02-28 18:15:49 UTC*</sub>
+<sub>*Last update: 2026-03-01 09:37:09 UTC*</sub>
 
