@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but  we have been a long time on the way."_  
+> _"He wants what he cannot have, and does not want what he can't refuse — and isn't aware of it. He doesn't know the difference between his own possessions and others'. Because, if he did, he would never be thwarted of disappointed. Or nervous."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-01 09:37:09 UTC*</sub>
+<sub>*Last update: 2026-03-01 18:16:27 UTC*</sub>
 
