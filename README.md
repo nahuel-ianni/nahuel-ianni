@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Ignis aurum probat, miseria fortes viros. Fire is the test of gold; adversity, of strong men."_  
+> _"Who is your master? Whoever has authority over anything that you’re anxious to gain or avoid."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-03 09:53:23 UTC*</sub>
+<sub>*Last update: 2026-03-03 18:31:40 UTC*</sub>
 
