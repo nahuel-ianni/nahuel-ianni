@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Meditate upon what you ought to be in body and soul when death overtakes you; meditate on the brevity of life, and the measureless gulf of eternity behind it and before, and upon the frailty of everything material."_  
+> _"Ignis aurum probat, miseria fortes viros. Fire is the test of gold; adversity, of strong men."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-02 18:29:36 UTC*</sub>
+<sub>*Last update: 2026-03-03 09:53:23 UTC*</sub>
 
