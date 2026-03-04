@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Who is your master? Whoever has authority over anything that you’re anxious to gain or avoid."_  
+> _"Believe me if you consult philosophy she will persuade you not to lit so long at your counting desk."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-03 18:31:40 UTC*</sub>
+<sub>*Last update: 2026-03-04 09:51:15 UTC*</sub>
 
