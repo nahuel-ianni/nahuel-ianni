@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Believe me if you consult philosophy she will persuade you not to lit so long at your counting desk."_  
+> _"What we do now echoes in eternity."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-04 09:51:15 UTC*</sub>
+<sub>*Last update: 2026-03-04 18:30:45 UTC*</sub>
 
