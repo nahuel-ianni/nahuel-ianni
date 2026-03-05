@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Thou wilt cease to be held by pains and pleasures, and to be a slave to the vessel, which is as much inferior as that which serves it is superior: for the one is intelligence and deity; the other is earth and corruption."_  
+> _"There are more things likely to frighten us than there are to crush us; we suffer more in our imagination than in reality."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-05 09:54:34 UTC*</sub>
+<sub>*Last update: 2026-03-05 19:04:21 UTC*</sub>
 
