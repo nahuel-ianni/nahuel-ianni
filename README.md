@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What we do now echoes in eternity."_  
+> _"Thou wilt cease to be held by pains and pleasures, and to be a slave to the vessel, which is as much inferior as that which serves it is superior: for the one is intelligence and deity; the other is earth and corruption."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-04 18:30:45 UTC*</sub>
+<sub>*Last update: 2026-03-05 09:54:34 UTC*</sub>
 
