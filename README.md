@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"We are indeed apt to ascribe certain faults to the place or to the time; but those faults will follow us, no matter how we change our place.  You."_  
+> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-03-06 09:50:16 UTC*</sub>
+<sub>*Last update: 2026-03-06 18:27:38 UTC*</sub>
 
