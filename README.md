@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Is you naturally entitled, then, to a good father? No, only to a father."_  
+> _"I never spend a day in idleness; I appropriate even a part of the night for study. I do not allow time for sleep but yield to it when I must, and when my eyes are wearied with waking and ready to fall shut, I keep them at their task."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-07 09:36:33 UTC*</sub>
+<sub>*Last update: 2026-03-07 18:16:24 UTC*</sub>
 
