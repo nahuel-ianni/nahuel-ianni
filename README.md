@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man's power to live long."_  
+> _"Is you naturally entitled, then, to a good father? No, only to a father."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-06 18:27:38 UTC*</sub>
+<sub>*Last update: 2026-03-07 09:36:33 UTC*</sub>
 
