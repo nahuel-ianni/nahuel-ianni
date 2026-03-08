@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When force of circumstance upsets your equanimity, lose no time in recovering your self-control, and do not remain out of tune longer than you can help. Habitual recurrence to the harmony will increase your mastery of it."_  
+> _"Do not act as if you had ten thousand years to live ... while you have life in you, while you still can, make yourself good."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-08 09:36:54 UTC*</sub>
+<sub>*Last update: 2026-03-08 18:16:48 UTC*</sub>
 
