@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"I never spend a day in idleness; I appropriate even a part of the night for study. I do not allow time for sleep but yield to it when I must, and when my eyes are wearied with waking and ready to fall shut, I keep them at their task."_  
+> _"When force of circumstance upsets your equanimity, lose no time in recovering your self-control, and do not remain out of tune longer than you can help. Habitual recurrence to the harmony will increase your mastery of it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-07 18:16:24 UTC*</sub>
+<sub>*Last update: 2026-03-08 09:36:54 UTC*</sub>
 
