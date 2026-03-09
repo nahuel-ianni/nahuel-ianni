@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do not act as if you had ten thousand years to live ... while you have life in you, while you still can, make yourself good."_  
+> _"If what philosophers say of the kinship of God and Man be true, what remains for men to do but as Socrates did:—never, when asked one's country, to answer, "I am an Athenian or a Corinthian," but "I am a citizen of the world.""_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-08 18:16:48 UTC*</sub>
+<sub>*Last update: 2026-03-09 10:00:46 UTC*</sub>
 
