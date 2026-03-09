@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"If what philosophers say of the kinship of God and Man be true, what remains for men to do but as Socrates did:—never, when asked one's country, to answer, "I am an Athenian or a Corinthian," but "I am a citizen of the world.""_  
+> _"The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but  we have been a long time on the way."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-09 10:00:46 UTC*</sub>
+<sub>*Last update: 2026-03-09 18:34:46 UTC*</sub>
 
