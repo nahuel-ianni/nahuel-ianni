@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The philosopher's lecture room is a 'hospital': you ought not to walk out of it in a state of pleasure, but in pain; for you are not in good condition when you arrive."_  
+> _"The first thing which philosophy undertakes to give is fellow-feeling with all men; in other words, sympathy and sociability."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-10 09:54:10 UTC*</sub>
+<sub>*Last update: 2026-03-10 18:32:34 UTC*</sub>
 
