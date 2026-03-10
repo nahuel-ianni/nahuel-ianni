@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but  we have been a long time on the way."_  
+> _"The philosopher's lecture room is a 'hospital': you ought not to walk out of it in a state of pleasure, but in pain; for you are not in good condition when you arrive."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-09 18:34:46 UTC*</sub>
+<sub>*Last update: 2026-03-10 09:54:10 UTC*</sub>
 
