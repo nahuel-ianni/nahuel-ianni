@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It isn't ceasing to live that I'm afraid of but never beginning to live properly."_  
+> _"Think your way through difficulties: harsh conditions can be softened, restricted ones can be widened, and heavy ones can weigh less on those who know how to bear them."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-11 09:52:58 UTC*</sub>
+<sub>*Last update: 2026-03-11 18:37:20 UTC*</sub>
 
