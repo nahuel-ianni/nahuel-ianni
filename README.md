@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The first thing which philosophy undertakes to give is fellow-feeling with all men; in other words, sympathy and sociability."_  
+> _"It isn't ceasing to live that I'm afraid of but never beginning to live properly."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-10 18:32:34 UTC*</sub>
+<sub>*Last update: 2026-03-11 09:52:58 UTC*</sub>
 
