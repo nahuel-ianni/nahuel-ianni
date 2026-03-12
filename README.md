@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Think your way through difficulties: harsh conditions can be softened, restricted ones can be widened, and heavy ones can weigh less on those who know how to bear them."_  
+> _"Man is disturbed not by things, but by the views he takes of them."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-11 18:37:20 UTC*</sub>
+<sub>*Last update: 2026-03-12 09:53:18 UTC*</sub>
 
