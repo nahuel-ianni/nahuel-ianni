@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Man is disturbed not by things, but by the views he takes of them."_  
+> _"Tis true I know what evil I shall do but passion overpowers the better council."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-03-12 09:53:18 UTC*</sub>
+<sub>*Last update: 2026-03-12 18:36:02 UTC*</sub>
 
