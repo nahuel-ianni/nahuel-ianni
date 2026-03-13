@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Tis true I know what evil I shall do but passion overpowers the better council."_  
+> _"Anger will abate and become more controlled when it knows it must come before a judge each day."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-12 18:36:02 UTC*</sub>
+<sub>*Last update: 2026-03-13 09:49:55 UTC*</sub>
 
