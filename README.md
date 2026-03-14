@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nūllum magnum ingenium sine mixtūrā dēmentiae fuit No great talent without an element of madness."_  
+> _"The world is nothing but change. Our life is only perception."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-13 18:25:27 UTC*</sub>
+<sub>*Last update: 2026-03-14 09:41:26 UTC*</sub>
 
