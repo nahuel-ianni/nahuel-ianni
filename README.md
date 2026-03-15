@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Nūllum magnum ingenium sine mixtūrā dēmentiae fuit No great talent without an element of madness."_  
+> _"Where you arrive does not matter so much as what sort of person you are when you arrive there."_  
 >
 > — **Seneca**
 
-<sub>*Last update: 2026-03-14 18:19:47 UTC*</sub>
+<sub>*Last update: 2026-03-15 09:41:58 UTC*</sub>
 
