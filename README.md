@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"How many together with whom I came into the world are already gone out of it."_  
+> _"Restless people often pretend to be calm."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-16 10:10:19 UTC*</sub>
+<sub>*Last update: 2026-03-16 18:43:44 UTC*</sub>
 
