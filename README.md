@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No man finds it difficult to return to nature, except the man who has deserted nature.  We."_  
+> _"How many together with whom I came into the world are already gone out of it."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-15 18:21:04 UTC*</sub>
+<sub>*Last update: 2026-03-16 10:10:19 UTC*</sub>
 
