@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Don't live by your own rules, but in harmony with nature."_  
+> _"Why all this guesswork? You can see what needs to be done. If you can see the road, follow it."_  
 >
-> — **Epictetus**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-17 10:00:10 UTC*</sub>
+<sub>*Last update: 2026-03-17 18:43:13 UTC*</sub>
 
