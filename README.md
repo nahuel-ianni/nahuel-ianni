@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Restless people often pretend to be calm."_  
+> _"Don't live by your own rules, but in harmony with nature."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-16 18:43:44 UTC*</sub>
+<sub>*Last update: 2026-03-17 10:00:10 UTC*</sub>
 
