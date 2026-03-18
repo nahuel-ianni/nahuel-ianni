@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Why all this guesswork? You can see what needs to be done. If you can see the road, follow it."_  
+> _"This, I say, is the highest duty and the highest proof of wisdom, – that deed and word should be in accord, that."_  
 >
-> — **Marcus Aurelius**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-17 18:43:13 UTC*</sub>
+<sub>*Last update: 2026-03-18 10:02:12 UTC*</sub>
 
