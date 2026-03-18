@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"This, I say, is the highest duty and the highest proof of wisdom, – that deed and word should be in accord, that."_  
+> _"Though thou shouldst be going to live three thousand years, and as many times ten thousand years, still remember that no man loses any other life than this which he now lives, nor lives any other than this which he now loses."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-18 10:02:12 UTC*</sub>
+<sub>*Last update: 2026-03-18 18:41:19 UTC*</sub>
 
