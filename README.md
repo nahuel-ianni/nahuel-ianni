@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Stupidity is expecting figs in winter, or children in old age."_  
+> _"You are a little soul carrying about a corpse, as Epictetus used to say."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-19 09:54:54 UTC*</sub>
+<sub>*Last update: 2026-03-19 18:38:57 UTC*</sub>
 
