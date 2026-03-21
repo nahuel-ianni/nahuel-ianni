@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Do external things distract you? Then make time for yourself to learn something worthwhile; stop letting yourself be pulled in all directions."_  
+> _"The impediment to action advances action. What stands in the way becomes the way."_  
 >
 > — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-20 18:30:36 UTC*</sub>
+<sub>*Last update: 2026-03-21 09:39:35 UTC*</sub>
 
