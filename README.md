@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The impediment to action advances action. What stands in the way becomes the way."_  
+> _"God has entrusted me with myself. No man is free who is not master of himself. A man should so live that his happiness shall depend as little as possible on external things. The world turns aside to let any man pass who knows where he is going."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-21 09:39:35 UTC*</sub>
+<sub>*Last update: 2026-03-21 18:19:04 UTC*</sub>
 
