@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Regard a friend as loyal, and you will make him loyal."_  
+> _"And to behave in a conciliatory way when people who have angered or annoyed us want to make up."_  
 >
-> — **Seneca**
+> — **Marcus Aurelius**
 
-<sub>*Last update: 2026-03-22 09:40:25 UTC*</sub>
+<sub>*Last update: 2026-03-22 18:19:36 UTC*</sub>
 
