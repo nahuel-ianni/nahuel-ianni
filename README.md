@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"God has entrusted me with myself. No man is free who is not master of himself. A man should so live that his happiness shall depend as little as possible on external things. The world turns aside to let any man pass who knows where he is going."_  
+> _"Regard a friend as loyal, and you will make him loyal."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-21 18:19:04 UTC*</sub>
+<sub>*Last update: 2026-03-22 09:40:25 UTC*</sub>
 
