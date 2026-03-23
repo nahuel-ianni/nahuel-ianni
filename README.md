@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"What are we to do, then? To make the best of what lies within our power, and deal with everything else as it comes. ‘How does it come, then?’ As God wills."_  
+> _"Imagine for yourself a character, a model personality, whose example you determine to follow, in private as well as in public."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-03-23 10:08:46 UTC*</sub>
+<sub>*Last update: 2026-03-23 18:36:46 UTC*</sub>
 
