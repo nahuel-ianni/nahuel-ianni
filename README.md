@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"And to behave in a conciliatory way when people who have angered or annoyed us want to make up."_  
+> _"What are we to do, then? To make the best of what lies within our power, and deal with everything else as it comes. ‘How does it come, then?’ As God wills."_  
 >
-> — **Marcus Aurelius**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-22 18:19:36 UTC*</sub>
+<sub>*Last update: 2026-03-23 10:08:46 UTC*</sub>
 
