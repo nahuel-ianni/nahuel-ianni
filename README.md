@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"It is not events that disturb people, it is their judgements concerning them."_  
+> _"There is no need to complain of particular grievances, for life in its entirety is lamentable."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-24 10:01:00 UTC*</sub>
+<sub>*Last update: 2026-03-24 18:44:11 UTC*</sub>
 
