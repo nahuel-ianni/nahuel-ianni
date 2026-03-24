@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Imagine for yourself a character, a model personality, whose example you determine to follow, in private as well as in public."_  
+> _"It is not events that disturb people, it is their judgements concerning them."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-03-23 18:36:46 UTC*</sub>
+<sub>*Last update: 2026-03-24 10:01:00 UTC*</sub>
 
