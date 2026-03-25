@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"No good thing renders its possessor happy, unless his mind is reconciled to the possibility of loss."_  
+> _"Stop honouring externals, quit turning yourself into the tool of mere matter, or of people who can supply you or deny you those material things."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-25 09:59:57 UTC*</sub>
+<sub>*Last update: 2026-03-25 18:39:39 UTC*</sub>
 
