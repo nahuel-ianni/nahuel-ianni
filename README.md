@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"Stop honouring externals, quit turning yourself into the tool of mere matter, or of people who can supply you or deny you those material things."_  
+> _"We are indeed apt to ascribe certain faults to the place or to the time; but those faults will follow us, no matter how we change our place.  You."_  
 >
-> — **Epictetus**
+> — **Seneca**
 
-<sub>*Last update: 2026-03-25 18:39:39 UTC*</sub>
+<sub>*Last update: 2026-03-26 10:06:15 UTC*</sub>
 
