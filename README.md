@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"When a man is proud because he can understand and explain the writings of Chrysippus, say to yourself, if Chrysippus had not written obscurely, this man would have had nothing to be proud of."_  
+> _"If you would cure anger, do not feed it. Say to yourself: 'I used to be angry every day; then every other day; now only every third or fourth day.' When you reach thirty days offer a sacrifice of thanksgiving to the gods."_  
 >
 > — **Epictetus**
 
-<sub>*Last update: 2026-03-27 09:59:26 UTC*</sub>
+<sub>*Last update: 2026-03-27 18:39:28 UTC*</sub>
 
