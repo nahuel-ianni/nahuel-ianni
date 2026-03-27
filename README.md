@@ -7,9 +7,9 @@
 ---
 
 ### Daily Wisdom
-> _"The present alone can make no man wretched."_  
+> _"When a man is proud because he can understand and explain the writings of Chrysippus, say to yourself, if Chrysippus had not written obscurely, this man would have had nothing to be proud of."_  
 >
-> — **Seneca**
+> — **Epictetus**
 
-<sub>*Last update: 2026-03-26 18:47:40 UTC*</sub>
+<sub>*Last update: 2026-03-27 09:59:26 UTC*</sub>
 
