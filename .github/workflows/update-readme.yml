@@ -6,9 +6,6 @@ on:
     - cron: "0 18 * * *"  # Run at 18:00 UTC
   workflow_dispatch:      # Allow manual execution
 
-permissions:
-  contents: write
-
 jobs:
   update-readme:
     runs-on: ubuntu-latest
@@ -37,6 +34,5 @@ jobs:
           git config --global user.name "github-actions"
           git config --global user.email "github-actions@github.com"
           git add README.md
-          git diff --cached --quiet && exit 0
-          git commit -m "Updated quote and timestamp"
+          git commit -m "Updated quote and timestamp" || exit 0
           git push
