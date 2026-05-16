@@ -6,6 +6,9 @@ on:
     - cron: "0 18 * * *"  # Run at 18:00 UTC
   workflow_dispatch:      # Allow manual execution
 
+permissions:
+  contents: write
+
 jobs:
   update-readme:
     runs-on: ubuntu-latest
@@ -19,23 +22,21 @@ jobs:
           QUOTE=$(echo "$QUOTE_JSON" | jq -r '.text')
           AUTHOR=$(echo "$QUOTE_JSON" | jq -r '.author')
           printf "> _\"%s\"_  \n>\n> — **%s**\n\n" "$QUOTE" "$AUTHOR" > quote.md
-
       - name: Update Timestamp
         run: |
           UTC_TIME=$(date -u +'%Y-%m-%d %H:%M:%S UTC')
           printf "<sub>*Last update: %s*</sub>\n\n" "$UTC_TIME" > timestamp.md
-
       - name: Update README
         run: |
           sed -n '1,/### Daily Wisdom/p' README.md > temp.md
           cat quote.md >> temp.md
           cat timestamp.md >> temp.md
           mv temp.md README.md
-
       - name: Commit and Push Changes
         run: |
           git config --global user.name "github-actions"
           git config --global user.email "github-actions@github.com"
           git add README.md
-          git commit -m "Updated quote and timestamp" || exit 0
+          git diff --cached --quiet && exit 0
+          git commit -m "Updated quote and timestamp"
           git push
